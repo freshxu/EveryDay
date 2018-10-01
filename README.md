@@ -11,3 +11,6 @@ If your eyes are opened, you will see the things worth seeing.
 ### 2018-09-30  
 Some of us get dipped in flat, some in satin, some in gloss. But every once in a while you find someone who's iridescent, and when you do, nothing will ever compare.  
 有些人沦为平庸浅薄，金玉其外，败絮其中。可不经意间你会遇到一个彩虹般的人，从此以后，其他人不过是匆匆浮云。  
+### 2018-10-01  
+A man has free choice to begin love, but not to end it.  
+一个人可以选择爱上谁，当他要结束爱情时，他是没有选择的。  
