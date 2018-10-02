@@ -14,3 +14,6 @@ Some of us get dipped in flat, some in satin, some in gloss. But every once in a
 ### 2018-10-01  
 A man has free choice to begin love, but not to end it.  
 一个人可以选择爱上谁，当他要结束爱情时，他是没有选择的。  
+### 2018-10-02  
+There are more things in heaven and earth than you've ever dream of.  
+天地之大，比你所能梦想到的更多。  
