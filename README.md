@@ -17,3 +17,6 @@ A man has free choice to begin love, but not to end it.
 ### 2018-10-02  
 There are more things in heaven and earth than you've ever dream of.  
 天地之大，比你所能梦想到的更多。  
+### 2018-10-03  
+If you reveal your secrets to the wind, you should not blame the wind for revealing them to the trees.  
+不要把秘密传给风，风会传遍整个森林。  
