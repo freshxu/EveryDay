@@ -20,3 +20,6 @@ There are more things in heaven and earth than you've ever dream of.
 ### 2018-10-03  
 If you reveal your secrets to the wind, you should not blame the wind for revealing them to the trees.  
 不要把秘密传给风，风会传遍整个森林。  
+### 2018-10-04  
+I would die for you. But I wouldn't live for you.  
+我愿意为你赴死，但不会指望你而活。  
