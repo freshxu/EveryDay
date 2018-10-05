@@ -23,3 +23,6 @@ If you reveal your secrets to the wind, you should not blame the wind for reveal
 ### 2018-10-04  
 I would die for you. But I wouldn't live for you.  
 我愿意为你赴死，但不会指望你而活。  
+### 2018-10-05  
+There are no easy answers, there's only living through the questions.  
+生活从来没有容易的答案，只有去克服重重问题。  
