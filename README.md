@@ -26,3 +26,6 @@ I would die for you. But I wouldn't live for you.
 ### 2018-10-05  
 There are no easy answers, there's only living through the questions.  
 生活从来没有容易的答案，只有去克服重重问题。  
+### 2018-10-06  
+I can't control their fear, only my own.  
+我不能掌控他人的恐惧，只能掌控自己的。  
