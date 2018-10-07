@@ -29,3 +29,6 @@ There are no easy answers, there's only living through the questions.
 ### 2018-10-06  
 I can't control their fear, only my own.  
 我不能掌控他人的恐惧，只能掌控自己的。  
+### 2018-10-07  
+The longest day has an end.  
+最难过的日子也有尽头。  
