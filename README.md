@@ -32,3 +32,6 @@ I can't control their fear, only my own.
 ### 2018-10-07  
 The longest day has an end.  
 最难过的日子也有尽头。  
+### 2018-10-08  
+Sometimes it's hard to accept the truth because the lies sound so much better.  
+真相有时之所以难以被接受，是因为谎言听起来美好多了。  
