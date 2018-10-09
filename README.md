@@ -35,3 +35,6 @@ The longest day has an end.
 ### 2018-10-08  
 Sometimes it's hard to accept the truth because the lies sound so much better.  
 真相有时之所以难以被接受，是因为谎言听起来美好多了。  
+### 2018-10-09  
+It does not do well to depend on dreams and forget to live, remember that.  
+记住：不要依赖梦想而忘记生活。  
