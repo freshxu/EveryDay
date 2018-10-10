@@ -38,3 +38,6 @@ Sometimes it's hard to accept the truth because the lies sound so much better.
 ### 2018-10-09  
 It does not do well to depend on dreams and forget to live, remember that.  
 记住：不要依赖梦想而忘记生活。  
+### 2018-10-10  
+We laughed and kept saying see you soon, but inside we both knew we'd never see each other again.  
+我们笑着说再见，却深知再见遥遥无期。  
