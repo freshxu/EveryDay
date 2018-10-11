@@ -41,3 +41,6 @@ It does not do well to depend on dreams and forget to live, remember that.
 ### 2018-10-10  
 We laughed and kept saying see you soon, but inside we both knew we'd never see each other again.  
 我们笑着说再见，却深知再见遥遥无期。  
+### 2018-10-11  
+Had I not seen the sun, I could have borne the shade.  
+我本可以忍受黑暗，如果我不曾见过太阳。  
