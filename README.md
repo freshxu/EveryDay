@@ -44,3 +44,6 @@ We laughed and kept saying see you soon, but inside we both knew we'd never see 
 ### 2018-10-11  
 Had I not seen the sun, I could have borne the shade.  
 我本可以忍受黑暗，如果我不曾见过太阳。  
+### 2018-10-12  
+Sometimes it is the very people who no one imagines anything of who do the things that no one can imagine.  
+有时候正是人们以为的无用之人成就无人敢想之事。  
