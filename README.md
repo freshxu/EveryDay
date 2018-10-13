@@ -47,3 +47,6 @@ Had I not seen the sun, I could have borne the shade.
 ### 2018-10-12  
 Sometimes it is the very people who no one imagines anything of who do the things that no one can imagine.  
 有时候正是人们以为的无用之人成就无人敢想之事。  
+### 2018-10-13  
+To really understand a man, we must judge him in misfortune.  
+要真正了解一个人，需在不幸中考察他。  
