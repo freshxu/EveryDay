@@ -50,3 +50,6 @@ Sometimes it is the very people who no one imagines anything of who do the thing
 ### 2018-10-13  
 To really understand a man, we must judge him in misfortune.  
 要真正了解一个人，需在不幸中考察他。  
+### 2018-10-14  
+The supreme happiness of life is the conviction that we are loved.  
+生活中最大的幸福是坚信有人爱我们。  
