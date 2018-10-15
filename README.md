@@ -53,3 +53,6 @@ To really understand a man, we must judge him in misfortune.
 ### 2018-10-14  
 The supreme happiness of life is the conviction that we are loved.  
 生活中最大的幸福是坚信有人爱我们。  
+### 2018-10-15  
+Happiness lies not in the mere possession of money, it lies in the joy of achievement, in the thrill of creative effort.  
+幸福不在于拥有金钱，而在于获得成就时的喜悦以及产生创造力的激情。  
