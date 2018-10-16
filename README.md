@@ -56,3 +56,6 @@ The supreme happiness of life is the conviction that we are loved.
 ### 2018-10-15  
 Happiness lies not in the mere possession of money, it lies in the joy of achievement, in the thrill of creative effort.  
 幸福不在于拥有金钱，而在于获得成就时的喜悦以及产生创造力的激情。  
+### 2018-10-16  
+I have failed over and over and over again in my life. And that is why I succeed.  
+我的一生一次又一次失败过，而那正是我成功的原因。  
