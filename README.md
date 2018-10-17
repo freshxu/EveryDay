@@ -59,3 +59,6 @@ Happiness lies not in the mere possession of money, it lies in the joy of achiev
 ### 2018-10-16  
 I have failed over and over and over again in my life. And that is why I succeed.  
 我的一生一次又一次失败过，而那正是我成功的原因。  
+### 2018-10-17  
+Some of the most successful people in the world are the ones who've had the most failures.  
+世上最成功的人往往都是失败最多的人。  
