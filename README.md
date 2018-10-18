@@ -62,3 +62,6 @@ I have failed over and over and over again in my life. And that is why I succeed
 ### 2018-10-17  
 Some of the most successful people in the world are the ones who've had the most failures.  
 世上最成功的人往往都是失败最多的人。  
+### 2018-10-18  
+None is of freedom or of life deserving unless he daily conquers it anew.  
+只有每天再度战胜生活并夺取自由的人，才配享受生活和自由。  
