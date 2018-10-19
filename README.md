@@ -65,3 +65,6 @@ Some of the most successful people in the world are the ones who've had the most
 ### 2018-10-18  
 None is of freedom or of life deserving unless he daily conquers it anew.  
 只有每天再度战胜生活并夺取自由的人，才配享受生活和自由。  
+### 2018-10-19  
+Towering genius disdains a beaten path. It seeks regions hitherto unexplored.  
+卓越的天才不屑走旁人走过的路，他寻找迄今未开拓的地区。  
