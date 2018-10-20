@@ -68,3 +68,6 @@ None is of freedom or of life deserving unless he daily conquers it anew.
 ### 2018-10-19  
 Towering genius disdains a beaten path. It seeks regions hitherto unexplored.  
 卓越的天才不屑走旁人走过的路，他寻找迄今未开拓的地区。  
+### 2018-10-20  
+Strength alone knows conflict, weakness is below even defeat, and is born vanquished.   
+只有强者才懂得斗争；弱者甚至失败都不够资格，而是生来就是被征服的。  
