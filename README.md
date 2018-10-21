@@ -71,3 +71,6 @@ Towering genius disdains a beaten path. It seeks regions hitherto unexplored.
 ### 2018-10-20  
 Strength alone knows conflict, weakness is below even defeat, and is born vanquished.   
 只有强者才懂得斗争；弱者甚至失败都不够资格，而是生来就是被征服的。  
+### 2018-10-21  
+Made it, Ma! Top of the world!   
+好好去做吧，站在世界之巅!  
