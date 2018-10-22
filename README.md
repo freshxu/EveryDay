@@ -74,3 +74,6 @@ Strength alone knows conflict, weakness is below even defeat, and is born vanqui
 ### 2018-10-21  
 Made it, Ma! Top of the world!   
 好好去做吧，站在世界之巅!  
+### 2018-10-22  
+Time goes by, there is no end, only the intersection.  
+时间一直走，没有尽头，只有路口。  
