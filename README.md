@@ -77,3 +77,6 @@ Made it, Ma! Top of the world!
 ### 2018-10-22  
 Time goes by, there is no end, only the intersection.  
 时间一直走，没有尽头，只有路口。  
+### 2018-10-23  
+Everyone you see exists together in a delicate balance.  
+世界上所有的生命都在微妙的平衡中生存。  
