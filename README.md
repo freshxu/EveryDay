@@ -80,3 +80,6 @@ Time goes by, there is no end, only the intersection.
 ### 2018-10-23  
 Everyone you see exists together in a delicate balance.  
 世界上所有的生命都在微妙的平衡中生存。  
+### 2018-10-24  
+But every once in a while you find someone who's iridescent, and when you do, nothing will compare.  
+世人万千种，浮云莫去求，斯人如彩虹，遇上方知有。  
