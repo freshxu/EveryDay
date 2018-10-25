@@ -83,3 +83,6 @@ Everyone you see exists together in a delicate balance.
 ### 2018-10-24  
 But every once in a while you find someone who's iridescent, and when you do, nothing will compare.  
 世人万千种，浮云莫去求，斯人如彩虹，遇上方知有。  
+### 2018-10-25  
+Life doesn't just happen to you; you receive everything in your life based on what you've given.  
+发生在你身上的一切均非偶然。你从生活中得到了什么，源于你给予了什么。  
