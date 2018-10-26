@@ -86,3 +86,6 @@ But every once in a while you find someone who's iridescent, and when you do, no
 ### 2018-10-25  
 Life doesn't just happen to you; you receive everything in your life based on what you've given.  
 发生在你身上的一切均非偶然。你从生活中得到了什么，源于你给予了什么。  
+### 2018-10-26  
+Night comes, is one of the most vulnerable, when the mind is also thinking of the most crazy time. In fact, a person is not alone miss when a person is really alone.  
+深夜来临的时候，是一个人心灵最脆弱的时候，也是思念最疯狂的时候。其实一个人并不孤单，想念一个人的时候才是真正的孤单。  
