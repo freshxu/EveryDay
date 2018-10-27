@@ -89,3 +89,6 @@ Life doesn't just happen to you; you receive everything in your life based on wh
 ### 2018-10-26  
 Night comes, is one of the most vulnerable, when the mind is also thinking of the most crazy time. In fact, a person is not alone miss when a person is really alone.  
 深夜来临的时候，是一个人心灵最脆弱的时候，也是思念最疯狂的时候。其实一个人并不孤单，想念一个人的时候才是真正的孤单。  
+### 2018-10-27  
+Your mind is like this water, my friend, when it is agitated, it becomes difficult to see. But if you allow it to settle, the answer becomes clear.  
+你的思想就如同水，我的朋友，当水波摇曳时，很难看清，不过当它平静下来，答案就清澈见底了。  
