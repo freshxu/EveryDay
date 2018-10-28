@@ -92,3 +92,6 @@ Night comes, is one of the most vulnerable, when the mind is also thinking of th
 ### 2018-10-27  
 Your mind is like this water, my friend, when it is agitated, it becomes difficult to see. But if you allow it to settle, the answer becomes clear.  
 你的思想就如同水，我的朋友，当水波摇曳时，很难看清，不过当它平静下来，答案就清澈见底了。  
+### 2018-10-28  
+Our destiny offers not the cup of despair, but the chalice of opportunity.  
+命运给予我们的不是失望之酒，而是机会之杯。  
