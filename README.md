@@ -95,3 +95,6 @@ Your mind is like this water, my friend, when it is agitated, it becomes difficu
 ### 2018-10-28  
 Our destiny offers not the cup of despair, but the chalice of opportunity.  
 命运给予我们的不是失望之酒，而是机会之杯。  
+### 2018-10-29  
+Fear can hold you prisoner. Hope can set you free. A strong man can save himself. A great man can save another.  
+懦怯囚禁人的灵魂，希望可以解救人的自由。强者自救，圣者渡人。  
