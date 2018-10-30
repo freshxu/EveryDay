@@ -98,3 +98,6 @@ Our destiny offers not the cup of despair, but the chalice of opportunity.
 ### 2018-10-29  
 Fear can hold you prisoner. Hope can set you free. A strong man can save himself. A great man can save another.  
 懦怯囚禁人的灵魂，希望可以解救人的自由。强者自救，圣者渡人。  
+### 2018-10-30  
+The defects and faults of the mind are like wounds in the body. After all imaginable care has been taken to heal them up, still there will be a scar left behind.  
+思想上的缺陷和弱点正如身体上的创伤，就算用尽一切办法将其治愈，仍然会留下疤痕。  
