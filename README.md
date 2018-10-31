@@ -101,3 +101,6 @@ Fear can hold you prisoner. Hope can set you free. A strong man can save himself
 ### 2018-10-30  
 The defects and faults of the mind are like wounds in the body. After all imaginable care has been taken to heal them up, still there will be a scar left behind.  
 思想上的缺陷和弱点正如身体上的创伤，就算用尽一切办法将其治愈，仍然会留下疤痕。  
+### 2018-10-31  
+What else is the whole life of mortals but a sort of comedy, in which the various actors, disguised by various costumes and masks, walk on and play each one his part, until the manager waves them off the stage.  
+人生如喜剧，人人皆化妆假面，扮演各自角色，直到戏毕离场。  
