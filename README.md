@@ -107,3 +107,6 @@ What else is the whole life of mortals but a sort of comedy, in which the variou
 ### 2018-11-01  
 The past is our definition. We may strive, with good reason, to escape it or what is bad in it, but we will escape it only by adding things better to it.  
 过去是我们给自己下的定义。我们有很好的理由去努力摆脱它，或是摆脱其中不好的部分，但摆脱它的唯一途径是——在其中添加更好的东西。  
+### 2018-11-02  
+When you realize you want to spend the rest of your life with somebody, you want the rest of your life to start as soon as possible.  
+当你发现你想和某个人共度余生时，你会想要余生快点开始。  
