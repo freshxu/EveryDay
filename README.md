@@ -110,3 +110,6 @@ The past is our definition. We may strive, with good reason, to escape it or wha
 ### 2018-11-02  
 When you realize you want to spend the rest of your life with somebody, you want the rest of your life to start as soon as possible.  
 当你发现你想和某个人共度余生时，你会想要余生快点开始。  
+### 2018-11-03  
+ I never look back. It distracts from the now.  
+我从来不回头看，因为那样会让我对现在分心。  
