@@ -113,3 +113,6 @@ When you realize you want to spend the rest of your life with somebody, you want
 ### 2018-11-03  
  I never look back. It distracts from the now.  
 我从来不回头看，因为那样会让我对现在分心。  
+### 2018-11-04  
+It is not enough to be industrious, so are the ants. What are you industrious for?  
+光勤劳是不够的，蚂蚁也是勤劳的。要看你为什么而勤劳。  
