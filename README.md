@@ -116,3 +116,6 @@ When you realize you want to spend the rest of your life with somebody, you want
 ### 2018-11-04  
 It is not enough to be industrious, so are the ants. What are you industrious for?  
 光勤劳是不够的，蚂蚁也是勤劳的。要看你为什么而勤劳。  
+### 2018-11-05  
+One of the basic rules of the universe is that nothing is perfect. Perfection simply doesn't exist.....Without imperfection, neither you nor I would exist.  
+宇宙的基本准则之一：金无足赤，人无完人。这世上不存在所谓的“完美”。没了这种“不完美”，你我将不复存在。  
