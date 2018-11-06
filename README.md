@@ -119,3 +119,6 @@ It is not enough to be industrious, so are the ants. What are you industrious fo
 ### 2018-11-05  
 One of the basic rules of the universe is that nothing is perfect. Perfection simply doesn't exist.....Without imperfection, neither you nor I would exist.  
 宇宙的基本准则之一：金无足赤，人无完人。这世上不存在所谓的“完美”。没了这种“不完美”，你我将不复存在。  
+### 2018-11-06  
+Yes, the past can hurt. But I think you can either run from it or learn from it.   
+ 对，过去是痛楚的，但我认为你要么可以逃避，要么可以向它学习。  
