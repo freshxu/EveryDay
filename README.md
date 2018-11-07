@@ -122,3 +122,6 @@ One of the basic rules of the universe is that nothing is perfect. Perfection si
 ### 2018-11-06  
 Yes, the past can hurt. But I think you can either run from it or learn from it.   
  对，过去是痛楚的，但我认为你要么可以逃避，要么可以向它学习。  
+### 2018-11-07  
+When you play the game of thrones, you win or you die. There is no middle ground.  
+你玩权利的游戏，结局要么赢、要么死。没有其他选择。  
