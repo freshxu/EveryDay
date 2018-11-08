@@ -125,3 +125,6 @@ Yes, the past can hurt. But I think you can either run from it or learn from it.
 ### 2018-11-07  
 When you play the game of thrones, you win or you die. There is no middle ground.  
 你玩权利的游戏，结局要么赢、要么死。没有其他选择。  
+### 2018-11-08  
+A goal is not always meant to be reached, and it often serves simply as something to aim at.  
+目标并不一定总是用于去达成的，很多时候它仅仅是为了给你方向感。  
