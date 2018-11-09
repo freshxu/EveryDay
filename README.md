@@ -128,3 +128,6 @@ When you play the game of thrones, you win or you die. There is no middle ground
 ### 2018-11-08  
 A goal is not always meant to be reached, and it often serves simply as something to aim at.  
 目标并不一定总是用于去达成的，很多时候它仅仅是为了给你方向感。  
+### 2018-11-09  
+The greatest test of courage on earth is to bear defeat without losing heart.  
+世界上对勇气的最大考验是忍受失败而不丧失信心。  
