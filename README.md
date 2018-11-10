@@ -131,3 +131,6 @@ A goal is not always meant to be reached, and it often serves simply as somethin
 ### 2018-11-09  
 The greatest test of courage on earth is to bear defeat without losing heart.  
 世界上对勇气的最大考验是忍受失败而不丧失信心。  
+### 2018-11-10  
+The bigger the man, the deeper his imprint. And if he loves, he suffers, knowing it's a dead-end street.  
+越是煎熬，越刻骨铭心，爱了就要受苦，明知没有结果。  
