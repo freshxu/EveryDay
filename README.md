@@ -134,3 +134,6 @@ The greatest test of courage on earth is to bear defeat without losing heart.
 ### 2018-11-10  
 The bigger the man, the deeper his imprint. And if he loves, he suffers, knowing it's a dead-end street.  
 越是煎熬，越刻骨铭心，爱了就要受苦，明知没有结果。  
+### 2018-11-11  
+Sloth, like rust, consumes faster than labor wear.  
+懒惰像生锈一样，比操劳更能消耗身体。  
