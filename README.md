@@ -137,3 +137,6 @@ The bigger the man, the deeper his imprint. And if he loves, he suffers, knowing
 ### 2018-11-11  
 Sloth, like rust, consumes faster than labor wear.  
 懒惰像生锈一样，比操劳更能消耗身体。  
+### 2018-11-12  
+Don't part with your illusions. When they are gone, you may still exist. But you have ceased to live.  
+不要放弃你的幻想。当幻想没有了以后，你还可以生存，但是你虽生犹死。  
