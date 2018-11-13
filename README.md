@@ -140,3 +140,6 @@ Sloth, like rust, consumes faster than labor wear.
 ### 2018-11-12  
 Don't part with your illusions. When they are gone, you may still exist. But you have ceased to live.  
 不要放弃你的幻想。当幻想没有了以后，你还可以生存，但是你虽生犹死。  
+### 2018-11-13  
+I love waking up in the morning, not knowing what's going to happen, or whom I'm going to meet, where I'm going to wind up.  
+我喜欢早上起来时一切都是未知的，不知会遇见什么人，会有什么样的结局。  
