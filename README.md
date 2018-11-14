@@ -143,3 +143,6 @@ Don't part with your illusions. When they are gone, you may still exist. But you
 ### 2018-11-13  
 I love waking up in the morning, not knowing what's going to happen, or whom I'm going to meet, where I'm going to wind up.  
 我喜欢早上起来时一切都是未知的，不知会遇见什么人，会有什么样的结局。  
+### 2018-11-14  
+It's not the man in your life that counts but the life in your man.  
+并不是你生命中的男人有价值，而是你与他在一起的生命。  
