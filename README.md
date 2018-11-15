@@ -146,3 +146,6 @@ I love waking up in the morning, not knowing what's going to happen, or whom I'm
 ### 2018-11-14  
 It's not the man in your life that counts but the life in your man.  
 并不是你生命中的男人有价值，而是你与他在一起的生命。  
+### 2018-11-15  
+Now I find myself in a world which for me is worse than death. It is a world in which there is no place for me.  
+现在我发现自己活在一个比死还痛苦的世界，一个无我容身之处的世界。  
