@@ -149,3 +149,6 @@ It's not the man in your life that counts but the life in your man.
 ### 2018-11-15  
 Now I find myself in a world which for me is worse than death. It is a world in which there is no place for me.  
 现在我发现自己活在一个比死还痛苦的世界，一个无我容身之处的世界。  
+### 2018-11-16  
+I don't want to be someone that you're settling for. I don't want to be someone that anyone settles for.  
+我不想要你将就，我也不想成为将就的对象。  
