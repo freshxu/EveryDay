@@ -152,3 +152,6 @@ Now I find myself in a world which for me is worse than death. It is a world in 
 ### 2018-11-16  
 I don't want to be someone that you're settling for. I don't want to be someone that anyone settles for.  
 我不想要你将就，我也不想成为将就的对象。  
+### 2018-11-17  
+Some love stories aren't epic novels. Some are short stories, but that doesn't make them any less filled with love.  
+有些爱情故事不会成为史诗，有些只是短篇小说，但同样都满溢着爱。  
