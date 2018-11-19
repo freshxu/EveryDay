@@ -158,3 +158,6 @@ Some love stories aren't epic novels. Some are short stories, but that doesn't m
 ### 2018-11-18  
 Love is when you sit beside someone doing nothing yet you feel perfectly happy.  
 爱就是当你坐在他身边，哪怕什么都不做，也会感觉很开心。  
+### 2018-11-19  
+There is not a heart but has its moments of longing, yearning for something better, nobler and holier than it knows before.  
+每个人都有向往的时候，渴望比以前更美好，更高贵，更神圣的东西。  
