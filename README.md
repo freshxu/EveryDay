@@ -161,3 +161,6 @@ Love is when you sit beside someone doing nothing yet you feel perfectly happy.
 ### 2018-11-19  
 There is not a heart but has its moments of longing, yearning for something better, nobler and holier than it knows before.  
 每个人都有向往的时候，渴望比以前更美好，更高贵，更神圣的东西。  
+### 2018-11-20  
+It is awfully easy to be hard-boiled about everything in the daytime, but at night it is another thing.  
+在白天对什么都不动感情是极为容易的，但在夜晚就是另外一回事了。  
