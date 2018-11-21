@@ -164,3 +164,6 @@ There is not a heart but has its moments of longing, yearning for something bett
 ### 2018-11-20  
 It is awfully easy to be hard-boiled about everything in the daytime, but at night it is another thing.  
 在白天对什么都不动感情是极为容易的，但在夜晚就是另外一回事了。  
+### 2018-11-21  
+Sometimes people think they lose things and they didn't really lose them. It just gets moved.  
+人们有时以为失去了什么，其实没有，只是被移开了。  
