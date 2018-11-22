@@ -167,3 +167,6 @@ It is awfully easy to be hard-boiled about everything in the daytime, but at nig
 ### 2018-11-21  
 Sometimes people think they lose things and they didn't really lose them. It just gets moved.  
 人们有时以为失去了什么，其实没有，只是被移开了。  
+### 2018-11-22  
+If you are doing your best, you will not have to worry about failure.  
+如果你竭尽全力，你就不用担心失败。  
