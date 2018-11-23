@@ -170,3 +170,6 @@ Sometimes people think they lose things and they didn't really lose them. It jus
 ### 2018-11-22  
 If you are doing your best, you will not have to worry about failure.  
 如果你竭尽全力，你就不用担心失败。  
+### 2018-11-23  
+The world is like a mirror: when you frown at it, it frowns at you; when smile, it smiles too.  
+世界犹如一面镜子：朝它皱眉的话，它就朝你皱眉；朝它微笑，它也朝你微笑。  
