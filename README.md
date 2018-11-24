@@ -173,3 +173,6 @@ If you are doing your best, you will not have to worry about failure.
 ### 2018-11-23  
 The world is like a mirror: when you frown at it, it frowns at you; when smile, it smiles too.  
 世界犹如一面镜子：朝它皱眉的话，它就朝你皱眉；朝它微笑，它也朝你微笑。  
+### 2018-11-24  
+Do not, for one repulse, give up the purpose that you resolved to effect.  
+不要只因一次失败，就放弃你原来决心想到达的目的。  
