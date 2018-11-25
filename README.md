@@ -176,3 +176,6 @@ The world is like a mirror: when you frown at it, it frowns at you; when smile, 
 ### 2018-11-24  
 Do not, for one repulse, give up the purpose that you resolved to effect.  
 不要只因一次失败，就放弃你原来决心想到达的目的。  
+### 2018-11-25  
+Human felicity is produced not so much by great pieces of good fortune that seldom happen, as by little advantages that occur every day.  
+与其说人类的幸福来自偶尔发生的鸿运，不如说来自每天都有的小实惠。  
