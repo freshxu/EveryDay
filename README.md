@@ -179,3 +179,6 @@ Do not, for one repulse, give up the purpose that you resolved to effect.
 ### 2018-11-25  
 Human felicity is produced not so much by great pieces of good fortune that seldom happen, as by little advantages that occur every day.  
 与其说人类的幸福来自偶尔发生的鸿运，不如说来自每天都有的小实惠。  
+### 2018-11-26  
+We're going where no one has gone before. There is no model to follow, nothing to copy. That is what makes this so exciting.  
+我们要去别人从没去过的地方。没有模式可以模仿，没有东西可以复制。这才是魅力所在。  
