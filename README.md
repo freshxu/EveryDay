@@ -182,3 +182,6 @@ Human felicity is produced not so much by great pieces of good fortune that seld
 ### 2018-11-26  
 We're going where no one has gone before. There is no model to follow, nothing to copy. That is what makes this so exciting.  
 我们要去别人从没去过的地方。没有模式可以模仿，没有东西可以复制。这才是魅力所在。  
+### 2018-11-27  
+You become what you believe. You are where you are today in your life based on everything you have believed.  
+你梦想成为什么样的人，你就能成为什么样的人。你今时今日所处的位置都是基于你所信赖和梦想的一切。  
