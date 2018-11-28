@@ -185,3 +185,6 @@ We're going where no one has gone before. There is no model to follow, nothing t
 ### 2018-11-27  
 You become what you believe. You are where you are today in your life based on everything you have believed.  
 你梦想成为什么样的人，你就能成为什么样的人。你今时今日所处的位置都是基于你所信赖和梦想的一切。  
+### 2018-11-28  
+The weakest link in a chain is the strongest because it can break it.  
+在一个链条里，最弱的一环也可能是最强的，因为它可以使整个链条断掉。  
