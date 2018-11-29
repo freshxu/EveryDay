@@ -188,3 +188,6 @@ You become what you believe. You are where you are today in your life based on e
 ### 2018-11-28  
 The weakest link in a chain is the strongest because it can break it.  
 在一个链条里，最弱的一环也可能是最强的，因为它可以使整个链条断掉。  
+### 2018-11-29  
+If you would go high, then use your own legs! Do not let yourselves carried aloft; do not seat yourselves on other people's backs and heads.  
+如果你想走到高处，就要用自己的两条腿！不要让别人把你抬到高处；不要坐在别人的背上和头上。  
