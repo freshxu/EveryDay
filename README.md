@@ -191,3 +191,6 @@ The weakest link in a chain is the strongest because it can break it.
 ### 2018-11-29  
 If you would go high, then use your own legs! Do not let yourselves carried aloft; do not seat yourselves on other people's backs and heads.  
 如果你想走到高处，就要用自己的两条腿！不要让别人把你抬到高处；不要坐在别人的背上和头上。  
+### 2018-11-30  
+Most folks are about as happy as they make up their minds to be.  
+对于大多数人来说，他们认定自己有多幸福，就有多幸福。  
