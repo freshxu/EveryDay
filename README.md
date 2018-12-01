@@ -194,3 +194,6 @@ If you would go high, then use your own legs! Do not let yourselves carried alof
 ### 2018-11-30  
 Most folks are about as happy as they make up their minds to be.  
 对于大多数人来说，他们认定自己有多幸福，就有多幸福。  
+### 2018-12-01  
+It is not our abilities that show what we truly are, but our choices.  
+决定我们成为什么样的人，不是我们的能力，而是我们的选择。  
