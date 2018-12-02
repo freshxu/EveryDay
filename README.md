@@ -197,3 +197,6 @@ Most folks are about as happy as they make up their minds to be.
 ### 2018-12-01  
 It is not our abilities that show what we truly are, but our choices.  
 决定我们成为什么样的人，不是我们的能力，而是我们的选择。  
+### 2018-12-02  
+Your time is limited, so don't waste it living someone else's life.  
+你的时间有限，所以不要浪费时间去过别人的生活。  
