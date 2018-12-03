@@ -200,3 +200,6 @@ It is not our abilities that show what we truly are, but our choices.
 ### 2018-12-02  
 Your time is limited, so don't waste it living someone else's life.  
 你的时间有限，所以不要浪费时间去过别人的生活。  
+### 2018-12-03  
+If you love life, don't waste time, for time is what life is made up of.  
+如果你热爱生活就不要浪费时间，因为时间是生活的组成部分。  
