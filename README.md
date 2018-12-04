@@ -203,3 +203,6 @@ Your time is limited, so don't waste it living someone else's life.
 ### 2018-12-03  
 If you love life, don't waste time, for time is what life is made up of.  
 如果你热爱生活就不要浪费时间，因为时间是生活的组成部分。  
+### 2018-12-04  
+If you spend too much time thinking about a thing, you'll never get it done.  
+如果你花费过多的时间去想某件事，那么你将永远也不会完成它。  
