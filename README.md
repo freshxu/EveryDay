@@ -206,3 +206,6 @@ If you love life, don't waste time, for time is what life is made up of.
 ### 2018-12-04  
 If you spend too much time thinking about a thing, you'll never get it done.  
 如果你花费过多的时间去想某件事，那么你将永远也不会完成它。  
+### 2018-12-05  
+A man may lead a horse to the water, but he cannot make it drink.  
+一个人可以把马带到河边，但他不能令它饮水。  
