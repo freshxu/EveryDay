@@ -209,3 +209,6 @@ If you spend too much time thinking about a thing, you'll never get it done.
 ### 2018-12-05  
 A man may lead a horse to the water, but he cannot make it drink.  
 一个人可以把马带到河边，但他不能令它饮水。  
+### 2018-12-06  
+Life itself, without the assistance of colleges and universities, is becoming an advanced institution of learning.  
+没有学院和大学的帮助，人生本身也正在变成一所高等学府。  
