@@ -212,3 +212,6 @@ A man may lead a horse to the water, but he cannot make it drink.
 ### 2018-12-06  
 Life itself, without the assistance of colleges and universities, is becoming an advanced institution of learning.  
 没有学院和大学的帮助，人生本身也正在变成一所高等学府。  
+### 2018-12-07  
+We must accept finite disappointment, but we must never lose infinite hope.  
+我们必须接受失望，因为它是有限的，但千万不可失去希望，因为它是无穷的。  
