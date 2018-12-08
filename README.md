@@ -215,3 +215,6 @@ Life itself, without the assistance of colleges and universities, is becoming an
 ### 2018-12-07  
 We must accept finite disappointment, but we must never lose infinite hope.  
 我们必须接受失望，因为它是有限的，但千万不可失去希望，因为它是无穷的。  
+### 2018-12-08  
+Do not know how high the sky is until one climbs up the tops of mountains, and do not know how thick the earth is until one comes to the deep river.  
+不登高山，不知天之高也；不临深溪，不知天之厚也。  
