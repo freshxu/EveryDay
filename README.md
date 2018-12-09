@@ -218,3 +218,6 @@ We must accept finite disappointment, but we must never lose infinite hope.
 ### 2018-12-08  
 Do not know how high the sky is until one climbs up the tops of mountains, and do not know how thick the earth is until one comes to the deep river.  
 不登高山，不知天之高也；不临深溪，不知天之厚也。  
+### 2018-12-09  
+Life comes with many challenges. The ones that should not scare us are ones we can take on and take control of.  
+生活充满了挑战，唯有勇敢面对并自我掌控，我们才能克服恐惧。  
