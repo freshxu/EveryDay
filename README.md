@@ -221,3 +221,6 @@ Do not know how high the sky is until one climbs up the tops of mountains, and d
 ### 2018-12-09  
 Life comes with many challenges. The ones that should not scare us are ones we can take on and take control of.  
 生活充满了挑战，唯有勇敢面对并自我掌控，我们才能克服恐惧。  
+### 2018-12-10  
+The respectability of youth lies in their courage and great expectation.  
+年轻人的可敬之处在于勇气和远大前程。  
