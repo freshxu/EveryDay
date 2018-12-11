@@ -224,3 +224,6 @@ Life comes with many challenges. The ones that should not scare us are ones we c
 ### 2018-12-10  
 The respectability of youth lies in their courage and great expectation.  
 年轻人的可敬之处在于勇气和远大前程。  
+### 2018-12-11  
+The value of life, not with time, but with the depth to be measured.  
+人生的价值，并不是用时间，而是用深度去衡量的。  
