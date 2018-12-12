@@ -227,3 +227,6 @@ The respectability of youth lies in their courage and great expectation.
 ### 2018-12-11  
 The value of life, not with time, but with the depth to be measured.  
 人生的价值，并不是用时间，而是用深度去衡量的。  
+### 2018-12-12  
+You cannot improve your past, but you can improve your future. Once time is wasted, life is wasted.  
+你不能改变你的过去，但你可以让你的未来变得更好。一旦时间浪费了，生命就浪费了。  
