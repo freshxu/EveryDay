@@ -230,3 +230,6 @@ The value of life, not with time, but with the depth to be measured.
 ### 2018-12-12  
 You cannot improve your past, but you can improve your future. Once time is wasted, life is wasted.  
 你不能改变你的过去，但你可以让你的未来变得更好。一旦时间浪费了，生命就浪费了。  
+### 2018-12-13  
+The best kind of friend is the kind you can sit on a porch swing with, never say a word, and then walk away feeling like it was the best conversation you've ever had.  
+最好的朋友就是那种能和你促膝而坐，彼此不说只言片语，分别时却感到这是你有过的最好的一次交流。  
