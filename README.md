@@ -233,3 +233,6 @@ You cannot improve your past, but you can improve your future. Once time is wast
 ### 2018-12-13  
 The best kind of friend is the kind you can sit on a porch swing with, never say a word, and then walk away feeling like it was the best conversation you've ever had.  
 最好的朋友就是那种能和你促膝而坐，彼此不说只言片语，分别时却感到这是你有过的最好的一次交流。  
+### 2018-12-14  
+Always put yourself in the other's shoes. If you feel that it hurts you, it probably hurts the person too.  
+要设身处地地为别人着想，如果一双鞋你穿着夹脚，别人的感觉可能也一样。  
