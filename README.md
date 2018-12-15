@@ -236,3 +236,6 @@ The best kind of friend is the kind you can sit on a porch swing with, never say
 ### 2018-12-14  
 Always put yourself in the other's shoes. If you feel that it hurts you, it probably hurts the person too.  
 要设身处地地为别人着想，如果一双鞋你穿着夹脚，别人的感觉可能也一样。  
+### 2018-12-15  
+I will not be afflicted at men's not knowing me; I will be afflicted that I do not know men.  
+不患人之不己知，患不知人也。  
