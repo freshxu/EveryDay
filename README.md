@@ -242,3 +242,6 @@ I will not be afflicted at men's not knowing me; I will be afflicted that I do n
 ### 2018-12-16  
 There is a prospect greater than the sea, and it is the sky; there is a prospect greater than the sky, and it is the human soul.  
 世界上最宽阔的是海洋，比海洋更宽阔的是天空，比天空更宽阔的是人的胸怀。  
+### 2018-12-17  
+Swelled heads are so preoccupied with the few things they know, so that there is no room left for the innumerable things they don't know.  
+自命不凡者，脑中被其所知的少数事物所占据，以致没有空间去容纳无数其所不知的事物。  
