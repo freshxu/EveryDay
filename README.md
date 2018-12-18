@@ -245,3 +245,6 @@ There is a prospect greater than the sea, and it is the sky; there is a prospect
 ### 2018-12-17  
 Swelled heads are so preoccupied with the few things they know, so that there is no room left for the innumerable things they don't know.  
 自命不凡者，脑中被其所知的少数事物所占据，以致没有空间去容纳无数其所不知的事物。  
+### 2018-12-18  
+Praise is like sunlight to the human spirit, we cannot flower and grow without it.  
+对于人的精神来说，赞扬就像阳光一样，没有它我们便不能开花生长。  
