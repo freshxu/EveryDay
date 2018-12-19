@@ -248,3 +248,6 @@ Swelled heads are so preoccupied with the few things they know, so that there is
 ### 2018-12-18  
 Praise is like sunlight to the human spirit, we cannot flower and grow without it.  
 对于人的精神来说，赞扬就像阳光一样，没有它我们便不能开花生长。  
+### 2018-12-19  
+When you forgive, you love. And when you love, God's light shines on you.  
+当你原谅他人时，你便是在爱人。当你爱人时，上帝的光芒会照耀着你。  
