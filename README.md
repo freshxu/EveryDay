@@ -251,3 +251,6 @@ Praise is like sunlight to the human spirit, we cannot flower and grow without i
 ### 2018-12-19  
 When you forgive, you love. And when you love, God's light shines on you.  
 当你原谅他人时，你便是在爱人。当你爱人时，上帝的光芒会照耀着你。  
+### 2018-12-20  
+It's goodbye, but we lean forward to the next crazy venture beneath the skies.  
+我们说了再见，但这也意味着，在广阔天空之下，我们又可以开启另一段疯狂探险。  
