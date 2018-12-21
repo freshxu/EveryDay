@@ -254,3 +254,6 @@ When you forgive, you love. And when you love, God's light shines on you.
 ### 2018-12-20  
 It's goodbye, but we lean forward to the next crazy venture beneath the skies.  
 我们说了再见，但这也意味着，在广阔天空之下，我们又可以开启另一段疯狂探险。  
+### 2018-12-21  
+All we can do, for the moment is really we need to do-listen to ourselves. When we are trying to get better, the only truth that matters is what works for.  
+我们所能做的，我们真正需要做的就是倾听自己的心声。当我们想让一切好起来的时候，唯一重要是找到适合我们的方法。  
