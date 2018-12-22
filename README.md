@@ -257,3 +257,6 @@ It's goodbye, but we lean forward to the next crazy venture beneath the skies.
 ### 2018-12-21  
 All we can do, for the moment is really we need to do-listen to ourselves. When we are trying to get better, the only truth that matters is what works for.  
 我们所能做的，我们真正需要做的就是倾听自己的心声。当我们想让一切好起来的时候，唯一重要是找到适合我们的方法。  
+### 2018-12-22  
+God never shuts one door but he opens another.  
+天无绝人之路。  
