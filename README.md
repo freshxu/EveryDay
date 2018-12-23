@@ -260,3 +260,6 @@ All we can do, for the moment is really we need to do-listen to ourselves. When 
 ### 2018-12-22  
 God never shuts one door but he opens another.  
 天无绝人之路。  
+### 2018-12-23  
+What is the man's first duty? The answer is brief: to be himself.  
+一个人的首要职责是什么？答案很简单：做自己。  
