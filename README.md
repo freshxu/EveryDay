@@ -263,3 +263,6 @@ God never shuts one door but he opens another.
 ### 2018-12-23  
 What is the man's first duty? The answer is brief: to be himself.  
 一个人的首要职责是什么？答案很简单：做自己。  
+### 2018-12-24  
+I was surprised, as always, that how easy the act of leaving was, and how good it felt. The world was suddenly rich with possibility.  
+和往常一样，我惊讶的发现，离别是如此的简单，出发的感觉是那么的美妙。世界突然充满了可能性。  
