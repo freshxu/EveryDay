@@ -266,3 +266,6 @@ What is the man's first duty? The answer is brief: to be himself.
 ### 2018-12-24  
 I was surprised, as always, that how easy the act of leaving was, and how good it felt. The world was suddenly rich with possibility.  
 和往常一样，我惊讶的发现，离别是如此的简单，出发的感觉是那么的美妙。世界突然充满了可能性。  
+### 2018-12-25  
+You will be licentious, if you only like someone. But if you love someone, you will be restrained.  
+喜欢就会放肆，但爱就是克制。  
