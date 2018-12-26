@@ -269,3 +269,6 @@ I was surprised, as always, that how easy the act of leaving was, and how good i
 ### 2018-12-25  
 You will be licentious, if you only like someone. But if you love someone, you will be restrained.  
 喜欢就会放肆，但爱就是克制。  
+### 2018-12-26  
+If you feel lost, just take a deep breath and realize that being lost can be burning point of finding out who you truly are, and what you truly want to do.  
+如果你迷失了自我，请深呼吸，迷失或许能成为你人生的转折点，让你发现真实的自己，并让你知道自己想要成为怎样的人。  
