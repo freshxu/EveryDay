@@ -275,3 +275,6 @@ If you feel lost, just take a deep breath and realize that being lost can be bur
 ### 2018-12-27  
 Though life is hard, I want it to be boiling.  
 虽然辛苦，我还是会选择那种滚烫的人生。  
+### 2018-12-28  
+I wish the progress bar of my life could move more slowly that I can spare no effort to walk to the end instead of running after time.  
+我希望人生的进度条能够再慢一点，如果可以竭尽全力走完，我不想奔跑。  
