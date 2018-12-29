@@ -278,3 +278,6 @@ Though life is hard, I want it to be boiling.
 ### 2018-12-28  
 I wish the progress bar of my life could move more slowly that I can spare no effort to walk to the end instead of running after time.  
 我希望人生的进度条能够再慢一点，如果可以竭尽全力走完，我不想奔跑。  
+### 2018-12-29  
+If a person loses the past, he can't find the future.  
+如果一个人丢掉了过去，他就无法找到未来。  
