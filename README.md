@@ -281,3 +281,6 @@ I wish the progress bar of my life could move more slowly that I can spare no ef
 ### 2018-12-29  
 If a person loses the past, he can't find the future.  
 如果一个人丢掉了过去，他就无法找到未来。  
+### 2018-12-30  
+Focus on one thing at a time. You can have it all but not all at once.  
+一次只关注一件事，你将会拥有一切，但不能一次就全部实现。  
