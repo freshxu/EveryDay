@@ -284,3 +284,6 @@ If a person loses the past, he can't find the future.
 ### 2018-12-30  
 Focus on one thing at a time. You can have it all but not all at once.  
 一次只关注一件事，你将会拥有一切，但不能一次就全部实现。  
+### 2018-12-31  
+Time gone is like the flowing water of a gurgling river, where even if one wishes one cannot touch the same water again.  
+流逝的时光就像淙淙的小河里奔腾的水，你再也无法感受同一捧水，无论你有多么希望。  
