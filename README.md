@@ -287,3 +287,6 @@ Focus on one thing at a time. You can have it all but not all at once.
 ### 2018-12-31  
 Time gone is like the flowing water of a gurgling river, where even if one wishes one cannot touch the same water again.  
 流逝的时光就像淙淙的小河里奔腾的水，你再也无法感受同一捧水，无论你有多么希望。  
+### 2019-01-01  
+Never frown, even when you are sad, because you never know who is falling in love with your smile.  
+纵然伤心，也不要愁眉不展，因为你不知谁会爱上你的笑容。  
