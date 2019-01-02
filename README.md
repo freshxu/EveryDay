@@ -290,3 +290,6 @@ Time gone is like the flowing water of a gurgling river, where even if one wishe
 ### 2019-01-01  
 Never frown, even when you are sad, because you never know who is falling in love with your smile.  
 纵然伤心，也不要愁眉不展，因为你不知谁会爱上你的笑容。  
+### 2019-01-02  
+When we are travelling, we find ourselves in new places and new spaces, physically and internally; it is the same with coaching.  
+在我们的旅途中，我们会发现自己置身于新的地理位置，也获得了新的心灵空间；乘马车观光亦是如此。  
