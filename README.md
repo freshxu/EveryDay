@@ -293,3 +293,6 @@ Never frown, even when you are sad, because you never know who is falling in lov
 ### 2019-01-02  
 When we are travelling, we find ourselves in new places and new spaces, physically and internally; it is the same with coaching.  
 在我们的旅途中，我们会发现自己置身于新的地理位置，也获得了新的心灵空间；乘马车观光亦是如此。  
+### 2019-01-03  
+What you disdained may be the life other people strive for, and the failed life you meant may be what other people have painstakingly earned.  
+你所嫌弃的，可能是别人拼命想要得到的。你以为失败的人生，也许是别人努力活着的结果。  
