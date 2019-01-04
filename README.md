@@ -296,3 +296,6 @@ When we are travelling, we find ourselves in new places and new spaces, physical
 ### 2019-01-03  
 What you disdained may be the life other people strive for, and the failed life you meant may be what other people have painstakingly earned.  
 你所嫌弃的，可能是别人拼命想要得到的。你以为失败的人生，也许是别人努力活着的结果。  
+### 2019-01-04  
+The key to happiness in life is knowing when to keep your mouth shut.  
+快乐的秘密就是知道在适当的时候保持沉默。  
