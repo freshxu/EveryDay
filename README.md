@@ -299,3 +299,6 @@ What you disdained may be the life other people strive for, and the failed life 
 ### 2019-01-04  
 The key to happiness in life is knowing when to keep your mouth shut.  
 快乐的秘密就是知道在适当的时候保持沉默。  
+### 2019-01-05  
+When you have much enough, you must accept that you could have little someday.  
+当你拥有足够多的时候，你要做好心理准备，因为在未来的某一天里你可能什么都没有了。  
