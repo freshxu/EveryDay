@@ -302,3 +302,6 @@ The key to happiness in life is knowing when to keep your mouth shut.
 ### 2019-01-05  
 When you have much enough, you must accept that you could have little someday.  
 当你拥有足够多的时候，你要做好心理准备，因为在未来的某一天里你可能什么都没有了。  
+### 2019-01-06  
+Rules existed for a reason: if you followed them, you would succeed; if you didn't, you might burn the world to the ground.  
+规则存在是有原因的：如果你遵循它们，你可能会成功；如果你不遵循它们，你可能会毁灭世界。  
