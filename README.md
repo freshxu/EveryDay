@@ -305,3 +305,6 @@ When you have much enough, you must accept that you could have little someday.
 ### 2019-01-06  
 Rules existed for a reason: if you followed them, you would succeed; if you didn't, you might burn the world to the ground.  
 规则存在是有原因的：如果你遵循它们，你可能会成功；如果你不遵循它们，你可能会毁灭世界。  
+### 2019-01-07  
+The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for.  
+事实是，每个人都会伤害你。你只需要找到那些值得让你忍受伤害的人。  
