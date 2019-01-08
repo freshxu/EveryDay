@@ -308,3 +308,6 @@ Rules existed for a reason: if you followed them, you would succeed; if you didn
 ### 2019-01-07  
 The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for.  
 事实是，每个人都会伤害你。你只需要找到那些值得让你忍受伤害的人。  
+### 2019-01-08  
+I am not judged by the number of times I fail, but by the number of times I succeed; and the number of times I succeed is in direct proportion to the number of times I fail and keep trying.  
+别人评判你的往往是成功的次数，没有人会特别在意你失败了多少次。而我成功的记录和屡败屡战的记录成正比。  
