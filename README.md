@@ -311,3 +311,6 @@ The truth is, everyone is going to hurt you. You just got to find the ones worth
 ### 2019-01-08  
 I am not judged by the number of times I fail, but by the number of times I succeed; and the number of times I succeed is in direct proportion to the number of times I fail and keep trying.  
 别人评判你的往往是成功的次数，没有人会特别在意你失败了多少次。而我成功的记录和屡败屡战的记录成正比。  
+### 2019-01-09  
+It seems that standing on the side of majority won't be called alien, following the track of most people's life rules can be accepted by the society.  
+要站在人类大多数的一边才不会被看作异类，遵循人们生活规律的轨迹才会被人类社会容纳。  
