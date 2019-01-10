@@ -314,3 +314,6 @@ I am not judged by the number of times I fail, but by the number of times I succ
 ### 2019-01-09  
 It seems that standing on the side of majority won't be called alien, following the track of most people's life rules can be accepted by the society.  
 要站在人类大多数的一边才不会被看作异类，遵循人们生活规律的轨迹才会被人类社会容纳。  
+### 2019-01-10  
+To be a princess, you have to believe that you are a princess. You've got to walk the way you think a princess would walk. So, you gotta think tall; you gotta smile, wave, and just have fun.  
+要想成为公主，你得相信自己就是一个公主。你应该像你所想象中的公主那般行事。因此，你得高瞻远瞩，微笑待人，享受生活。  
