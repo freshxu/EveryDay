@@ -317,3 +317,6 @@ It seems that standing on the side of majority won't be called alien, following 
 ### 2019-01-10  
 To be a princess, you have to believe that you are a princess. You've got to walk the way you think a princess would walk. So, you gotta think tall; you gotta smile, wave, and just have fun.  
 要想成为公主，你得相信自己就是一个公主。你应该像你所想象中的公主那般行事。因此，你得高瞻远瞩，微笑待人，享受生活。  
+### 2019-01-11  
+Though unconsciously, people are indeed moving towards their destination. Slow as the progress, seen from the result, it may be surprisingly fast.  
+即使是无意识的，人也总是在朝着自己想去的方向前进。虽然前进的步伐实际上是很缓慢的，但从结果来看，却是出人意料的迅速。  
