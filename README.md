@@ -320,3 +320,6 @@ To be a princess, you have to believe that you are a princess. You've got to wal
 ### 2019-01-11  
 Though unconsciously, people are indeed moving towards their destination. Slow as the progress, seen from the result, it may be surprisingly fast.  
 即使是无意识的，人也总是在朝着自己想去的方向前进。虽然前进的步伐实际上是很缓慢的，但从结果来看，却是出人意料的迅速。  
+### 2019-01-12  
+Courage is not the absence of fear, but rather the judgment that something else is more important than fear.  
+真正的勇者不是没有恐惧，他们只是明白有比恐惧更重要的东西。  
