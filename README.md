@@ -323,3 +323,6 @@ Though unconsciously, people are indeed moving towards their destination. Slow a
 ### 2019-01-12  
 Courage is not the absence of fear, but rather the judgment that something else is more important than fear.  
 真正的勇者不是没有恐惧，他们只是明白有比恐惧更重要的东西。  
+### 2019-01-13  
+Don't be in a hurry to grow up. Hold on to being a boy as long as you can.  
+不要急着长大，尽可能地做一个孩子吧。  
