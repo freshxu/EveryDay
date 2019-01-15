@@ -329,3 +329,6 @@ Don't be in a hurry to grow up. Hold on to being a boy as long as you can.
 ### 2019-01-14  
 No one ever grows up. They may look grown-up, but it's just the clay of time.  
 人永远都长不大。他们只是看起来像大人而已，但这只不过是时光雕塑出来的泥娃娃。  
+### 2019-01-15  
+People who cannot find time for recreation are obliged sooner or later to find time for illness.  
+腾不出时间娱乐的人，早晚会被迫腾出时间生病。  
