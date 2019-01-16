@@ -332,3 +332,6 @@ No one ever grows up. They may look grown-up, but it's just the clay of time.
 ### 2019-01-15  
 People who cannot find time for recreation are obliged sooner or later to find time for illness.  
 腾不出时间娱乐的人，早晚会被迫腾出时间生病。  
+### 2019-01-16  
+The shortest way to do many things is to do one thing at a time.  
+做许多事情的捷径就是一次只做一件事。  
