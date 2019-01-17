@@ -335,3 +335,6 @@ People who cannot find time for recreation are obliged sooner or later to find t
 ### 2019-01-16  
 The shortest way to do many things is to do one thing at a time.  
 做许多事情的捷径就是一次只做一件事。  
+### 2019-01-17  
+It's probably hard for you to imagine how it feels to have your destiny be predetermined at birth.  
+你可能很难想象：当你出生时命运就已经注定了是什么感觉。  
