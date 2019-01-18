@@ -338,3 +338,6 @@ The shortest way to do many things is to do one thing at a time.
 ### 2019-01-17  
 It's probably hard for you to imagine how it feels to have your destiny be predetermined at birth.  
 你可能很难想象：当你出生时命运就已经注定了是什么感觉。  
+### 2019-01-18  
+The reason why a great man is great is that he resolves to be a great man.  
+伟人之所以伟大，是因为他立志要成为伟大的人。  
