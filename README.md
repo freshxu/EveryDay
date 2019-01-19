@@ -341,3 +341,6 @@ It's probably hard for you to imagine how it feels to have your destiny be prede
 ### 2019-01-18  
 The reason why a great man is great is that he resolves to be a great man.  
 伟人之所以伟大，是因为他立志要成为伟大的人。  
+### 2019-01-19  
+If you look for it, I've got a sneaky feeling you'll find that love actually is all around.  
+如果你仔细寻找，就会发现爱无处不在。  
