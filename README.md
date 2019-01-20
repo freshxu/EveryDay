@@ -344,3 +344,6 @@ The reason why a great man is great is that he resolves to be a great man.
 ### 2019-01-19  
 If you look for it, I've got a sneaky feeling you'll find that love actually is all around.  
 如果你仔细寻找，就会发现爱无处不在。  
+### 2019-01-20  
+You don't get to choose how you're going to die, or when. You can only decide how you're going to live now.  
+你不能选择怎样死或什么时候死，你只能决定现在怎样生活。  
