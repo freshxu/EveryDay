@@ -347,3 +347,6 @@ If you look for it, I've got a sneaky feeling you'll find that love actually is 
 ### 2019-01-20  
 You don't get to choose how you're going to die, or when. You can only decide how you're going to live now.  
 你不能选择怎样死或什么时候死，你只能决定现在怎样生活。  
+### 2019-01-21  
+Interests are anchors, and I believe they will bring peace and even happiness in the end.  
+兴趣是锚，我相信它最终会带来和平，甚至幸福。  
