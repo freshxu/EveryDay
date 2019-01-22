@@ -350,3 +350,6 @@ You don't get to choose how you're going to die, or when. You can only decide ho
 ### 2019-01-21  
 Interests are anchors, and I believe they will bring peace and even happiness in the end.  
 兴趣是锚，我相信它最终会带来和平，甚至幸福。  
+### 2019-01-22  
+Difficult doesn't mean impossible. It simply means that you have to work hard.  
+困难并不代表不可能，它仅仅意味着你必须努力奋斗。  
