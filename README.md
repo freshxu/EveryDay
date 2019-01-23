@@ -353,3 +353,6 @@ Interests are anchors, and I believe they will bring peace and even happiness in
 ### 2019-01-22  
 Difficult doesn't mean impossible. It simply means that you have to work hard.  
 困难并不代表不可能，它仅仅意味着你必须努力奋斗。  
+### 2019-01-23  
+Life is like an ice cream, enjoy it before it melts.  
+生活就像冰淇淋，在融化之前好好享用它。  
