@@ -356,3 +356,6 @@ Difficult doesn't mean impossible. It simply means that you have to work hard.
 ### 2019-01-23  
 Life is like an ice cream, enjoy it before it melts.  
 生活就像冰淇淋，在融化之前好好享用它。  
+### 2019-01-24  
+We get to decide what our story is. Nobody else gets to tell you what your story is.  
+我们的故事由我们自己决定，轮不到别人对你指手画脚。  
