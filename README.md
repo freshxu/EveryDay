@@ -359,3 +359,6 @@ Life is like an ice cream, enjoy it before it melts.
 ### 2019-01-24  
 We get to decide what our story is. Nobody else gets to tell you what your story is.  
 我们的故事由我们自己决定，轮不到别人对你指手画脚。  
+### 2019-01-25  
+It seems like life is too short to hold grudges.  
+人生苦短，何必留仇。  
