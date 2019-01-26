@@ -362,3 +362,6 @@ We get to decide what our story is. Nobody else gets to tell you what your story
 ### 2019-01-25  
 It seems like life is too short to hold grudges.  
 人生苦短，何必留仇。  
+### 2019-01-26  
+Roads in the mountains teach you a very important lesson in life. What seems like an end is very often just a bend.  
+山间公路教会你人生中非常重要的一课，看似到了尽头，实际通常只是个弯道。  
