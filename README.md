@@ -365,3 +365,6 @@ It seems like life is too short to hold grudges.
 ### 2019-01-26  
 Roads in the mountains teach you a very important lesson in life. What seems like an end is very often just a bend.  
 山间公路教会你人生中非常重要的一课，看似到了尽头，实际通常只是个弯道。  
+### 2019-01-27  
+A ship is safe in harbor, but that's not what ships are for.  
+船停在港湾固然安全，但这并不是船的初衷。  
