@@ -368,3 +368,6 @@ Roads in the mountains teach you a very important lesson in life. What seems lik
 ### 2019-01-27  
 A ship is safe in harbor, but that's not what ships are for.  
 船停在港湾固然安全，但这并不是船的初衷。  
+### 2019-01-28  
+Kindness is the language which the deaf can hear and the blind can see.  
+善良是一种聋子能听见、盲人能看见的语言。  
