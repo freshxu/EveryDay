@@ -371,3 +371,6 @@ A ship is safe in harbor, but that's not what ships are for.
 ### 2019-01-28  
 Kindness is the language which the deaf can hear and the blind can see.  
 善良是一种聋子能听见、盲人能看见的语言。  
+### 2019-01-29  
+Wrinkles should merely indicate where smiles have been.  
+皱纹应该只是微笑留下的印记。  
