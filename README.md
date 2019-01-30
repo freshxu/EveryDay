@@ -374,3 +374,6 @@ Kindness is the language which the deaf can hear and the blind can see.
 ### 2019-01-29  
 Wrinkles should merely indicate where smiles have been.  
 皱纹应该只是微笑留下的印记。  
+### 2019-01-30  
+The human race has one really effective weapon, and that is laughter.  
+人类有一件真正有力的武器，那就是笑。  
