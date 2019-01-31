@@ -377,3 +377,6 @@ Wrinkles should merely indicate where smiles have been.
 ### 2019-01-30  
 The human race has one really effective weapon, and that is laughter.  
 人类有一件真正有力的武器，那就是笑。  
+### 2019-01-31  
+Keep away from people who try to belittle your ambitions. Small people always do that, but the really great make you feel that you, too, can become great.  
+远离那些企图让你丧失雄心的人吧。小人经常如此，而真正的伟人会让你觉得你也可以变得伟大。  
