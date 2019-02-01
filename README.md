@@ -380,3 +380,6 @@ The human race has one really effective weapon, and that is laughter.
 ### 2019-01-31  
 Keep away from people who try to belittle your ambitions. Small people always do that, but the really great make you feel that you, too, can become great.  
 远离那些企图让你丧失雄心的人吧。小人经常如此，而真正的伟人会让你觉得你也可以变得伟大。  
+### 2019-02-01  
+Never deter till tomorrow that which you can do today.  
+今日事须今日毕，切勿拖延到明天。  
