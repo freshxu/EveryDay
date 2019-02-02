@@ -383,3 +383,6 @@ Keep away from people who try to belittle your ambitions. Small people always do
 ### 2019-02-01  
 Never deter till tomorrow that which you can do today.  
 今日事须今日毕，切勿拖延到明天。  
+### 2019-02-02  
+One minute on the stage needs ten years practice off stage.  
+台上一分钟，台下十年功。  
