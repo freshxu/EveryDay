@@ -386,3 +386,6 @@ Never deter till tomorrow that which you can do today.
 ### 2019-02-02  
 One minute on the stage needs ten years practice off stage.  
 台上一分钟，台下十年功。  
+### 2019-02-03  
+The fool didn't know it was impossible, so he did it.  
+傻瓜不知道这事儿是不可能的，所以他做到了。  
