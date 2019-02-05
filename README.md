@@ -392,3 +392,6 @@ The fool didn't know it was impossible, so he did it.
 ### 2019-02-04  
 If you want to build a ship, don't drum up people to collect wood and don't assign them tasks and work, but rather long for the endless immensity of sea.  
 如果你想造一艘船，先不要雇人收集木头，也不要给人分配任务，而是激发他们对海洋的渴望。  
+### 2019-02-05  
+Happiness is only real when shared!  
+与人分享的快乐才是真正的快乐！  
