@@ -395,3 +395,6 @@ If you want to build a ship, don't drum up people to collect wood and don't assi
 ### 2019-02-05  
 Happiness is only real when shared!  
 与人分享的快乐才是真正的快乐！  
+### 2019-02-06  
+It's goodbye, but we lean forward to the next crazy venture beneath the skies.  
+我们说了再见，但这也意味着，在广阔天空之下，我们又可以开启另一段疯狂探险。  
