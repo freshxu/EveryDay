@@ -398,3 +398,6 @@ Happiness is only real when shared!
 ### 2019-02-06  
 It's goodbye, but we lean forward to the next crazy venture beneath the skies.  
 我们说了再见，但这也意味着，在广阔天空之下，我们又可以开启另一段疯狂探险。  
+### 2019-02-07  
+Most people grow up from sufferings, with optimistic attitude to struggle, one can thrive, otherwise one will be abandoned by his or her own life.  
+人是从苦难中成长起来的，唯有乐观奋斗，才能不断茁壮，反之则易埋没。  
