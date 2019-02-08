@@ -401,3 +401,6 @@ It's goodbye, but we lean forward to the next crazy venture beneath the skies.
 ### 2019-02-07  
 Most people grow up from sufferings, with optimistic attitude to struggle, one can thrive, otherwise one will be abandoned by his or her own life.  
 人是从苦难中成长起来的，唯有乐观奋斗，才能不断茁壮，反之则易埋没。  
+### 2019-02-08  
+If people in the communications only think about gains and losses of interest, then the pleasure of knowing each other will cease to exist.  
+如果人与人交往只想着利益得失，那么相识相知的愉悦也就不复存在了。  
