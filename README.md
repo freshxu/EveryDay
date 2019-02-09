@@ -404,3 +404,6 @@ Most people grow up from sufferings, with optimistic attitude to struggle, one c
 ### 2019-02-08  
 If people in the communications only think about gains and losses of interest, then the pleasure of knowing each other will cease to exist.  
 如果人与人交往只想着利益得失，那么相识相知的愉悦也就不复存在了。  
+### 2019-02-09  
+Faced with a same job, it is your attitude that gives you surprise or sorrow.  
+一份同样的工作，因为心态不同，既可能精彩，也可能痛苦。  
