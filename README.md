@@ -407,3 +407,6 @@ If people in the communications only think about gains and losses of interest, t
 ### 2019-02-09  
 Faced with a same job, it is your attitude that gives you surprise or sorrow.  
 一份同样的工作，因为心态不同，既可能精彩，也可能痛苦。  
+### 2019-02-10  
+Icicle is not a symbol o chillness but a sign of warming.  
+冰柱不是严寒的象征，而是天气变暖的标志。  
