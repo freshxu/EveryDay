@@ -410,3 +410,6 @@ Faced with a same job, it is your attitude that gives you surprise or sorrow.
 ### 2019-02-10  
 Icicle is not a symbol o chillness but a sign of warming.  
 冰柱不是严寒的象征，而是天气变暖的标志。  
+### 2019-02-11  
+Sometimes you hold onto things, not because you want to keep them, but because they are difficult to let go.  
+有时候你抓紧某些东西，并不是因为你想要留住它们，而是因为放手实在太难了。  
