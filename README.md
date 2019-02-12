@@ -413,3 +413,6 @@ Icicle is not a symbol o chillness but a sign of warming.
 ### 2019-02-11  
 Sometimes you hold onto things, not because you want to keep them, but because they are difficult to let go.  
 有时候你抓紧某些东西，并不是因为你想要留住它们，而是因为放手实在太难了。  
+### 2019-02-12  
+Repeating this kind of dull life all the time, seemingly, I really live a very hard life.  
+这种平平淡淡的日常生活，老是这么日复一日的话，也挺苦的吧。  
