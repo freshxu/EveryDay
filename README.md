@@ -416,3 +416,6 @@ Sometimes you hold onto things, not because you want to keep them, but because t
 ### 2019-02-12  
 Repeating this kind of dull life all the time, seemingly, I really live a very hard life.  
 这种平平淡淡的日常生活，老是这么日复一日的话，也挺苦的吧。  
+### 2019-02-13  
+Letting go of sad and gloomy memories, then embracing a fresher and brighter world.  
+放开悲伤的回忆，才能拥抱更鲜活的世界。  
