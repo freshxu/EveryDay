@@ -419,3 +419,6 @@ Repeating this kind of dull life all the time, seemingly, I really live a very h
 ### 2019-02-13  
 Letting go of sad and gloomy memories, then embracing a fresher and brighter world.  
 放开悲伤的回忆，才能拥抱更鲜活的世界。  
+### 2019-02-14  
+I choose to run towards my problems, and not away from them. Because that is what heroes do.  
+我选择直面问题，而不是逃避，因为英雄就是这么做的。  
