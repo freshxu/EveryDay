@@ -425,3 +425,6 @@ I choose to run towards my problems, and not away from them. Because that is wha
 ### 2019-02-15  
 You know some birds are not meant to be caged, their feathers are just too bright.  
 你知道，有些鸟儿是注定不会被关在牢笼里的，它们的每一片羽毛都闪耀着自由地光辉。  
+### 2019-02-16  
+Option A is not available. So let's just kick the shit out of Option B.  
+既然没有A选项了，那让我们尽可能地利用B选项吧。  
