@@ -428,3 +428,6 @@ You know some birds are not meant to be caged, their feathers are just too brigh
 ### 2019-02-16  
 Option A is not available. So let's just kick the shit out of Option B.  
 既然没有A选项了，那让我们尽可能地利用B选项吧。  
+### 2019-02-17  
+Love is not about how find out the similarities, it is about how to respect the differences.  
+爱情不是寻找共同点，而是学会尊重不同点。  
