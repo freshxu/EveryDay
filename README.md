@@ -431,3 +431,6 @@ Option A is not available. So let's just kick the shit out of Option B.
 ### 2019-02-17  
 Love is not about how find out the similarities, it is about how to respect the differences.  
 爱情不是寻找共同点，而是学会尊重不同点。  
+### 2019-02-18  
+Getting rid of the fetters of fame, one can concentrate on his technique.  
+人若无名，便可专心练剑。  
