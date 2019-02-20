@@ -437,3 +437,6 @@ Getting rid of the fetters of fame, one can concentrate on his technique.
 ### 2019-02-19  
 When you wake up, you need to think that something great is going to happen today, and that you are going to have a great day.  
 在你醒来的时候，你需要想着美好的事情即将发生，这将会让你拥有非常棒的一天。  
+### 2019-02-20  
+What is a friend? A single soul dwelling in two bodies.  
+朋友是什么？两幅躯壳拥有同一个灵魂。  
