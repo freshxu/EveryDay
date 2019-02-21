@@ -440,3 +440,6 @@ When you wake up, you need to think that something great is going to happen toda
 ### 2019-02-20  
 What is a friend? A single soul dwelling in two bodies.  
 朋友是什么？两幅躯壳拥有同一个灵魂。  
+### 2019-02-21  
+Counting blessings can actually increase happiness and health by reminding us of the good things in life.  
+细数幸福的事情确实可以提醒我们生活中存在的美好，还能增加我们的幸福感，保持身心健康。  
