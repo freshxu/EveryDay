@@ -443,3 +443,6 @@ What is a friend? A single soul dwelling in two bodies.
 ### 2019-02-21  
 Counting blessings can actually increase happiness and health by reminding us of the good things in life.  
 细数幸福的事情确实可以提醒我们生活中存在的美好，还能增加我们的幸福感，保持身心健康。  
+### 2019-02-22  
+It's always the simple things, well executed, that are memorable.  
+认真做好的事情，即使非常简单却总是令人难忘。  
