@@ -446,3 +446,6 @@ Counting blessings can actually increase happiness and health by reminding us of
 ### 2019-02-22  
 It's always the simple things, well executed, that are memorable.  
 认真做好的事情，即使非常简单却总是令人难忘。  
+### 2019-02-23  
+Tourism doesn't care about the destination, but care about the way people and things and those wonderful memories and scenery.  
+旅游不在乎终点，而是在意途中的人和事还有那些美好的记忆和景色。  
