@@ -449,3 +449,6 @@ It's always the simple things, well executed, that are memorable.
 ### 2019-02-23  
 Tourism doesn't care about the destination, but care about the way people and things and those wonderful memories and scenery.  
 旅游不在乎终点，而是在意途中的人和事还有那些美好的记忆和景色。  
+### 2019-02-24  
+A mother's love makes a child feel: the arrival of the world is beautiful; mother's love in the child gradually instill the love of life, and not just hope alive.  
+母爱使孩子感到：降临人间是美好的；母爱在孩子身上逐渐灌输了对生命的热爱，而不仅仅希望活着就是了。  
