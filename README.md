@@ -452,3 +452,6 @@ Tourism doesn't care about the destination, but care about the way people and th
 ### 2019-02-24  
 A mother's love makes a child feel: the arrival of the world is beautiful; mother's love in the child gradually instill the love of life, and not just hope alive.  
 母爱使孩子感到：降临人间是美好的；母爱在孩子身上逐渐灌输了对生命的热爱，而不仅仅希望活着就是了。  
+### 2019-02-25  
+If you listen to the music, the world changes. It's like falling in love. Only no one gets hurt.  
+当你聆听音乐时，仿佛世界都变了。这种感觉就像是陷入爱情，只不过没有人会受伤。  
