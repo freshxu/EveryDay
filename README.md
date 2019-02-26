@@ -455,3 +455,6 @@ A mother's love makes a child feel: the arrival of the world is beautiful; mothe
 ### 2019-02-25  
 If you listen to the music, the world changes. It's like falling in love. Only no one gets hurt.  
 当你聆听音乐时，仿佛世界都变了。这种感觉就像是陷入爱情，只不过没有人会受伤。  
+### 2019-02-26  
+Affection is when you see someone's strength, love is when you accept someone's flaws.  
+爱恋是只看到对方的好，而爱情是连对方的缺陷都包容。  
