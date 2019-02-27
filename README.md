@@ -458,3 +458,6 @@ If you listen to the music, the world changes. It's like falling in love. Only n
 ### 2019-02-26  
 Affection is when you see someone's strength, love is when you accept someone's flaws.  
 爱恋是只看到对方的好，而爱情是连对方的缺陷都包容。  
+### 2019-02-27  
+Learning is like rowing upstream, not to advance is to drop back.  
+学习如逆水行舟，不进则退。  
