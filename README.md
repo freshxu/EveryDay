@@ -461,3 +461,6 @@ Affection is when you see someone's strength, love is when you accept someone's 
 ### 2019-02-27  
 Learning is like rowing upstream, not to advance is to drop back.  
 学习如逆水行舟，不进则退。  
+### 2019-02-28  
+Not everything that counts can be counted, and not everything that's counted truly counts.  
+不是所有有价值的事物都可以被计算，也不是所有可计算的事物都值得去计算。  
