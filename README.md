@@ -464,3 +464,6 @@ Learning is like rowing upstream, not to advance is to drop back.
 ### 2019-02-28  
 Not everything that counts can be counted, and not everything that's counted truly counts.  
 不是所有有价值的事物都可以被计算，也不是所有可计算的事物都值得去计算。  
+### 2019-03-01  
+Can a man still be brave if he's afraid? That is the only time a man can be brave.  
+人在恐惧的时候还能勇敢吗？人唯有恐惧的时候方能勇敢。  
