@@ -467,3 +467,6 @@ Not everything that counts can be counted, and not everything that's counted tru
 ### 2019-03-01  
 Can a man still be brave if he's afraid? That is the only time a man can be brave.  
 人在恐惧的时候还能勇敢吗？人唯有恐惧的时候方能勇敢。  
+### 2019-03-02  
+Don't go around saying the world owes you a living. The world owes you nothing.  
+别到处跟别人抱怨这个世界欠你什么，这个世界什么都不欠你的。  
