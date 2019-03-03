@@ -470,3 +470,6 @@ Can a man still be brave if he's afraid? That is the only time a man can be brav
 ### 2019-03-02  
 Don't go around saying the world owes you a living. The world owes you nothing.  
 别到处跟别人抱怨这个世界欠你什么，这个世界什么都不欠你的。  
+### 2019-03-03  
+Failure is the fog through which we glimpse triumph.  
+失败是一团迷雾，穿过它，我们可以瞥见胜利。  
