@@ -473,3 +473,6 @@ Don't go around saying the world owes you a living. The world owes you nothing.
 ### 2019-03-03  
 Failure is the fog through which we glimpse triumph.  
 失败是一团迷雾，穿过它，我们可以瞥见胜利。  
+### 2019-03-04  
+It takes a great deal of bravery to stand up to your enemies, but a great deal more to stand up to your friends.  
+面对敌人需要勇气，但敢于直面朋友，需要更大的勇气。  
