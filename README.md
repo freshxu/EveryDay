@@ -476,3 +476,6 @@ Failure is the fog through which we glimpse triumph.
 ### 2019-03-04  
 It takes a great deal of bravery to stand up to your enemies, but a great deal more to stand up to your friends.  
 面对敌人需要勇气，但敢于直面朋友，需要更大的勇气。  
+### 2019-03-05  
+Hypocritical friendship is like your shadow; when you are in the sun, it will closely follow you, but once you go into the shadow, it will leave you.  
+虚伪的友谊就如你的影子；当你处在阳光下时，它会紧紧地跟着你，但你一旦走到阴暗处时，它立刻就会离开你。  
