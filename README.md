@@ -479,3 +479,6 @@ It takes a great deal of bravery to stand up to your enemies, but a great deal m
 ### 2019-03-05  
 Hypocritical friendship is like your shadow; when you are in the sun, it will closely follow you, but once you go into the shadow, it will leave you.  
 虚伪的友谊就如你的影子；当你处在阳光下时，它会紧紧地跟着你，但你一旦走到阴暗处时，它立刻就会离开你。  
+### 2019-03-06  
+Try to be a rainbow in someone’s cloud.   
+努力成为别人乌云里的一道彩虹。  
