@@ -482,3 +482,6 @@ Hypocritical friendship is like your shadow; when you are in the sun, it will cl
 ### 2019-03-06  
 Try to be a rainbow in someone’s cloud.   
 努力成为别人乌云里的一道彩虹。  
+### 2019-03-07  
+Content makes poor men rich; discontent makes rich men poor.  
+知足使贫穷的人富有；而贪婪使富足的人贫穷。  
