@@ -485,3 +485,6 @@ Try to be a rainbow in someone’s cloud.
 ### 2019-03-07  
 Content makes poor men rich; discontent makes rich men poor.  
 知足使贫穷的人富有；而贪婪使富足的人贫穷。  
+### 2019-03-08  
+When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us.  
+当幸福之门关上了，另一扇门也会为你打开；但就是我们一直在意关上的那扇门，而没有发现早已打开等待着我们的这一扇门。  
