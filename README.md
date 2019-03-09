@@ -488,3 +488,6 @@ Content makes poor men rich; discontent makes rich men poor.
 ### 2019-03-08  
 When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us.  
 当幸福之门关上了，另一扇门也会为你打开；但就是我们一直在意关上的那扇门，而没有发现早已打开等待着我们的这一扇门。  
+### 2019-03-09  
+No matter what situation we face, no matter how contradictory our hearts are, we always have a choice. What kind of person we are depends on who we choose to be.  
+不管我们面对什么处境，不管我们的内心多么矛盾，我们总有选择。我们是什么样的人，取决于我们选择做什么样的人。  
