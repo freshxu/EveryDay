@@ -491,3 +491,6 @@ When one door of happiness closes, another opens; but often we look so long at t
 ### 2019-03-09  
 No matter what situation we face, no matter how contradictory our hearts are, we always have a choice. What kind of person we are depends on who we choose to be.  
 不管我们面对什么处境，不管我们的内心多么矛盾，我们总有选择。我们是什么样的人，取决于我们选择做什么样的人。  
+### 2019-03-10  
+The world may be full of cheating, however we never lack friends with a warm heart.   
+有时候世界虽然是假的，但并不缺少真心对待我们的人。  
