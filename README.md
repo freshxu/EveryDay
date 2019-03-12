@@ -497,3 +497,6 @@ The world may be full of cheating, however we never lack friends with a warm hea
 ### 2019-03-11  
 I'm only brave when I have to be. Being brave doesn't mean you go looking for trouble.  
 我只是在必要的时候才会勇敢，勇敢并不代表你要到处闯祸。    
+### 2019-03-12  
+Once you choose your way of life, be brave to stick it out and never return.  
+生活的道路一旦选定，就要勇敢地走到底，绝不回头。  
