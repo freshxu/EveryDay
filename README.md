@@ -500,3 +500,6 @@ I'm only brave when I have to be. Being brave doesn't mean you go looking for tr
 ### 2019-03-12  
 Once you choose your way of life, be brave to stick it out and never return.  
 生活的道路一旦选定，就要勇敢地走到底，绝不回头。  
+### 2019-03-13  
+There is nothing noble in being superior to your fellow man; true nobility is being superior to your former self.    
+优于别人，并不高贵，真正的高贵应该是优于过去的自己。  
