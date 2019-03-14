@@ -503,3 +503,6 @@ Once you choose your way of life, be brave to stick it out and never return.
 ### 2019-03-13  
 There is nothing noble in being superior to your fellow man; true nobility is being superior to your former self.    
 优于别人，并不高贵，真正的高贵应该是优于过去的自己。  
+### 2019-03-14  
+The most difficult stage in life is not when no one understands you, but when you don't understand yourself.  
+生命中最艰难的阶段不是没有人懂你，而是你不懂你自己。  
