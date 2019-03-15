@@ -506,3 +506,6 @@ There is nothing noble in being superior to your fellow man; true nobility is be
 ### 2019-03-14  
 The most difficult stage in life is not when no one understands you, but when you don't understand yourself.  
 生命中最艰难的阶段不是没有人懂你，而是你不懂你自己。  
+### 2019-03-15  
+Sometimes it takes going through something so awful to realize the beauty that is out there in this world.  
+有时候就是要经历一些糟糕的事情才能意识到世间存在的美丽。  
