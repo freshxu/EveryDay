@@ -509,3 +509,6 @@ The most difficult stage in life is not when no one understands you, but when yo
 ### 2019-03-15  
 Sometimes it takes going through something so awful to realize the beauty that is out there in this world.  
 有时候就是要经历一些糟糕的事情才能意识到世间存在的美丽。  
+### 2019-03-16  
+There are many endeavors to bring pleasure to people. Some places are making something you take inside. Not the food, but the experience.  
+很多事情只要努力就可以带给人快乐。有的地方能让你收获在心的不是食物，而是经历。  
