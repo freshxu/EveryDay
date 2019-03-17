@@ -512,3 +512,6 @@ Sometimes it takes going through something so awful to realize the beauty that i
 ### 2019-03-16  
 There are many endeavors to bring pleasure to people. Some places are making something you take inside. Not the food, but the experience.  
 很多事情只要努力就可以带给人快乐。有的地方能让你收获在心的不是食物，而是经历。  
+### 2019-03-17  
+Since death is the destined terminal of human beings, how to finish the life road will really matter.  
+既然人总是要死的，那就得讲究活法了。  
