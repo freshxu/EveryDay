@@ -515,3 +515,6 @@ There are many endeavors to bring pleasure to people. Some places are making som
 ### 2019-03-17  
 Since death is the destined terminal of human beings, how to finish the life road will really matter.  
 既然人总是要死的，那就得讲究活法了。  
+### 2019-03-18  
+Don't aim for success if you want it. Just do what you love and believe in, and it will come naturally.  
+如果你想成功，不要刻意地追求成功。只要你干自己热爱的工作并相信它，成功就自然会到来。  
