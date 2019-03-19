@@ -518,3 +518,6 @@ Since death is the destined terminal of human beings, how to finish the life roa
 ### 2019-03-18  
 Don't aim for success if you want it. Just do what you love and believe in, and it will come naturally.  
 如果你想成功，不要刻意地追求成功。只要你干自己热爱的工作并相信它，成功就自然会到来。  
+### 2019-03-19  
+The foundation of knowledge must be laid by reading. General principles must come from books, which, however, must be brought to the test of real life.  
+读书是积累知识的基础。基础原理来源于书本，但须经实际生活的检验。  
