@@ -524,3 +524,6 @@ The foundation of knowledge must be laid by reading. General principles must com
 ### 2019-03-20  
 You'll never move others, heart to heart, unless your speech comes from your heart.  
 如果你说的话并非发自你的内心，你就不可能触动别人的心弦。  
+### 2019-03-21  
+Love is ever the beginning of knowledge as fire is of light.  
+知识总是从爱好开始，犹如光总是从火开始一样。  
