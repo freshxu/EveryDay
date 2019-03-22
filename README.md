@@ -527,3 +527,6 @@ You'll never move others, heart to heart, unless your speech comes from your hea
 ### 2019-03-21  
 Love is ever the beginning of knowledge as fire is of light.  
 知识总是从爱好开始，犹如光总是从火开始一样。  
+### 2019-03-22  
+The failures and reverses which await men- and one after another sadden the brow of youth- add a dignity to the prospect of human life, which no Arcadian success would do.  
+尽管失败和挫折等待着人们，一次次地夺走青春的容颜，但却给人生的前景增添了一份尊严，这是任何顺利的成功都不能做到的。  
