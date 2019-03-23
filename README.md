@@ -530,3 +530,6 @@ Love is ever the beginning of knowledge as fire is of light.
 ### 2019-03-22  
 The failures and reverses which await men- and one after another sadden the brow of youth- add a dignity to the prospect of human life, which no Arcadian success would do.  
 尽管失败和挫折等待着人们，一次次地夺走青春的容颜，但却给人生的前景增添了一份尊严，这是任何顺利的成功都不能做到的。  
+### 2019-03-23  
+A man can fail many times, but he isn't a failure until he begins to blame somebody else.  
+一个人可以失败很多次，但是只要他没有开始责怪旁人，他还不是一个失败者。  
