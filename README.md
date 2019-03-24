@@ -533,3 +533,6 @@ The failures and reverses which await men- and one after another sadden the brow
 ### 2019-03-23  
 A man can fail many times, but he isn't a failure until he begins to blame somebody else.  
 一个人可以失败很多次，但是只要他没有开始责怪旁人，他还不是一个失败者。  
+### 2019-03-24  
+I don't know if we each have a destiny, or if we're all just floating around accidentally like on a breeze.  
+我不懂我们是否有着各自的命运，还是只是到处随风飘荡。  
