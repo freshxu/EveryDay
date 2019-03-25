@@ -536,3 +536,6 @@ A man can fail many times, but he isn't a failure until he begins to blame someb
 ### 2019-03-24  
 I don't know if we each have a destiny, or if we're all just floating around accidentally like on a breeze.  
 我不懂我们是否有着各自的命运，还是只是到处随风飘荡。  
+### 2019-03-25  
+There is no royal road to science, and only those who do not dread the fatiguing climb of gaining its numinous summits.  
+在科学上没有平坦的大道，只有不畏劳苦沿着崎岖之路攀登的人，才有希望达到它光辉的顶点。  
