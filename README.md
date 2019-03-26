@@ -539,3 +539,6 @@ I don't know if we each have a destiny, or if we're all just floating around acc
 ### 2019-03-25  
 There is no royal road to science, and only those who do not dread the fatiguing climb of gaining its numinous summits.  
 在科学上没有平坦的大道，只有不畏劳苦沿着崎岖之路攀登的人，才有希望达到它光辉的顶点。  
+### 2019-03-26  
+You make millions of decisions that mean nothing and then one day your order takes out and it changes your life.  
+你每天都在做很多看起来毫无意义的决定，但某天你的某个决定就能改变你的一生。  
