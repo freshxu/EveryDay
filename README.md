@@ -542,3 +542,6 @@ There is no royal road to science, and only those who do not dread the fatiguing
 ### 2019-03-26  
 You make millions of decisions that mean nothing and then one day your order takes out and it changes your life.  
 你每天都在做很多看起来毫无意义的决定，但某天你的某个决定就能改变你的一生。  
+### 2019-03-27  
+When you finally get your own happiness, you will understand the previous sadness is a kind of treasure, which makes you better to hold and cherish the people you love.  
+等你获得真正属于你的幸福之后，你就会明白一起的伤痛其实是一种财富，它让你学会更好地去把握和珍惜你爱的人。  
