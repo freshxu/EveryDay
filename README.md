@@ -545,3 +545,6 @@ You make millions of decisions that mean nothing and then one day your order tak
 ### 2019-03-27  
 When you finally get your own happiness, you will understand the previous sadness is a kind of treasure, which makes you better to hold and cherish the people you love.  
 等你获得真正属于你的幸福之后，你就会明白一起的伤痛其实是一种财富，它让你学会更好地去把握和珍惜你爱的人。  
+### 2019-03-28  
+An unacceptable love needs no sorrow but time- some time for forgetting. A badly-hurt heart needs no sympathy but understanding.  
+一段不被接受的爱情，需要的不是伤心，而是时间，一段可以用来遗忘的时间。一颗被伤了的心，需要的不是同情，而是明白。  
