@@ -548,3 +548,6 @@ When you finally get your own happiness, you will understand the previous sadnes
 ### 2019-03-28  
 An unacceptable love needs no sorrow but time- some time for forgetting. A badly-hurt heart needs no sympathy but understanding.  
 一段不被接受的爱情，需要的不是伤心，而是时间，一段可以用来遗忘的时间。一颗被伤了的心，需要的不是同情，而是明白。  
+### 2019-03-29  
+I love and am used to keeping a distance with those changed things. Only in this way can I know what will not be abandoned by time.  
+我喜欢并习惯了对变化的东西保持着距离，这样才会知道什么是最不会被时间抛弃的准则。  
