@@ -551,3 +551,6 @@ An unacceptable love needs no sorrow but time- some time for forgetting. A badly
 ### 2019-03-29  
 I love and am used to keeping a distance with those changed things. Only in this way can I know what will not be abandoned by time.  
 我喜欢并习惯了对变化的东西保持着距离，这样才会知道什么是最不会被时间抛弃的准则。  
+### 2019-03-30  
+Few things are impossible in themselves; and it is often for want of will, rather than of means, that man fails to succeed.  
+事情很少有根本做不成的；其所以做不成，与其说是条件不够，不如说是由于决心不够。  
