@@ -554,3 +554,6 @@ I love and am used to keeping a distance with those changed things. Only in this
 ### 2019-03-30  
 Few things are impossible in themselves; and it is often for want of will, rather than of means, that man fails to succeed.  
 事情很少有根本做不成的；其所以做不成，与其说是条件不够，不如说是由于决心不够。  
+### 2019-03-31  
+Our destiny offers not the cup of despair, but the chalice of opportunity. So let us seize it, not in fear, but in gladness.  
+命运给予我们的不是失望之酒，而是机会之杯。因此，让我们毫无畏惧，满心愉悦地把握命运。  
