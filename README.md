@@ -557,3 +557,6 @@ Few things are impossible in themselves; and it is often for want of will, rathe
 ### 2019-03-31  
 Our destiny offers not the cup of despair, but the chalice of opportunity. So let us seize it, not in fear, but in gladness.  
 命运给予我们的不是失望之酒，而是机会之杯。因此，让我们毫无畏惧，满心愉悦地把握命运。  
+### 2019-04-01  
+The people who get on in this world are the people who get up and look for circumstances they want, and if they cannot find them, make them.  
+在这个世界上取得成就的人，都努力去寻找他们想要的机会，如果找不到机会，他们便自己创造机会。  
