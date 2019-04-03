@@ -563,3 +563,6 @@ The people who get on in this world are the people who get up and look for circu
 ### 2019-04-02  
 If you wish to succeed, you should use persistence as your good friend, experience as your reference, prudence as your brother and hope as your sentry.  
 如果你希望成功，当以恒心为良友，以经验为参谋，以谨慎为兄弟，以希望为哨兵。  
+### 2019-04-03  
+There is nothing that we can do for someone who doesn't appreciate what's in front of them.  
+对于一个不懂得珍惜良机的人来说，无论我们如何努力都是徒劳。  
