@@ -566,3 +566,6 @@ If you wish to succeed, you should use persistence as your good friend, experien
 ### 2019-04-03  
 There is nothing that we can do for someone who doesn't appreciate what's in front of them.  
 对于一个不懂得珍惜良机的人来说，无论我们如何努力都是徒劳。  
+### 2019-04-04  
+Here comes a point when a reasonable man will swallow his pride and admit that he's made a terrible mistake.  
+懂道理的人，终会按下自尊，坦诚他犯下严重错误的时刻。  
