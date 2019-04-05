@@ -569,3 +569,6 @@ There is nothing that we can do for someone who doesn't appreciate what's in fro
 ### 2019-04-04  
 Here comes a point when a reasonable man will swallow his pride and admit that he's made a terrible mistake.  
 懂道理的人，终会按下自尊，坦诚他犯下严重错误的时刻。  
+### 2019-04-05  
+The more difficult something is, the more rewarding it is in the end.  
+事情愈艰难，最后愈能得到丰厚的果实。  
