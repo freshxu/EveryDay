@@ -572,3 +572,6 @@ Here comes a point when a reasonable man will swallow his pride and admit that h
 ### 2019-04-05  
 The more difficult something is, the more rewarding it is in the end.  
 事情愈艰难，最后愈能得到丰厚的果实。  
+### 2019-04-06  
+The most affectionate love I imagined is that I live as you used to be after you've gone away.  
+我所认为最深沉的爱，莫过于分开以后，我将自己，活成了你的样子。  
