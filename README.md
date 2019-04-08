@@ -578,3 +578,6 @@ The most affectionate love I imagined is that I live as you used to be after you
 ### 2019-04-07  
 If every unfolding we experience takes us further along in life, then, we are truly experiencing what life is offering.  
 如果我们在人生中体验的每一次转变都让我们在生活中走得更远，那么，我们就真正的体验到了生活想让我们体验的东西。  
+### 2019-04-08  
+My heart was pounding the whole time. It was the most erotic moment of my life. Up until then, at least.  
+当时我的心一直像小鹿乱撞，那应该是我这辈子最性感的一刻了，至少在此之前没有过。  
