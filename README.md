@@ -581,3 +581,6 @@ If every unfolding we experience takes us further along in life, then, we are tr
 ### 2019-04-08  
 My heart was pounding the whole time. It was the most erotic moment of my life. Up until then, at least.  
 当时我的心一直像小鹿乱撞，那应该是我这辈子最性感的一刻了，至少在此之前没有过。  
+### 2019-04-09  
+It is our choices that show what we truly are, far more than our abilities.   
+表现我们真正的自我，是我们自己的选择，这比我们所具有的能力更重要。  
