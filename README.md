@@ -584,3 +584,6 @@ My heart was pounding the whole time. It was the most erotic moment of my life. 
 ### 2019-04-09  
 It is our choices that show what we truly are, far more than our abilities.   
 表现我们真正的自我，是我们自己的选择，这比我们所具有的能力更重要。  
+### 2019-04-10  
+Only through unity can we have a strong, if the split, then a single blow.  
+我们只有团结才会强大，如果分裂，便不堪一击。  
