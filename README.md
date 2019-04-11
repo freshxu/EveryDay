@@ -587,3 +587,6 @@ It is our choices that show what we truly are, far more than our abilities.
 ### 2019-04-10  
 Only through unity can we have a strong, if the split, then a single blow.  
 我们只有团结才会强大，如果分裂，便不堪一击。  
+### 2019-04-11  
+God shall wipe away all the tears from their eyes, and there shall be no more death. Neither shall there be sorrow or dying, neither shall there be any more pain, for the former world has passed away.  
+上帝擦去他们所有的眼泪，不再有死亡，也不再有悲伤和生离死别，不再有痛苦，因往事已矣。  
