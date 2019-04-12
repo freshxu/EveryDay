@@ -590,3 +590,6 @@ Only through unity can we have a strong, if the split, then a single blow.
 ### 2019-04-11  
 God shall wipe away all the tears from their eyes, and there shall be no more death. Neither shall there be sorrow or dying, neither shall there be any more pain, for the former world has passed away.  
 上帝擦去他们所有的眼泪，不再有死亡，也不再有悲伤和生离死别，不再有痛苦，因往事已矣。  
+### 2019-04-12  
+It is the unknown we fear when we look upon death and darkness. Nothing more.  
+当我们在面对黑暗和死亡的时候，我们害怕的只是未知，除此之外，没有别的。  
