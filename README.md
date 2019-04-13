@@ -593,3 +593,6 @@ God shall wipe away all the tears from their eyes, and there shall be no more de
 ### 2019-04-12  
 It is the unknown we fear when we look upon death and darkness. Nothing more.  
 当我们在面对黑暗和死亡的时候，我们害怕的只是未知，除此之外，没有别的。  
+### 2019-04-13  
+A man is not old as long as he is seeking something. A man is not old until regrets take the place of dreams.  
+只要一个人还有追求，他就没有老。直到后悔取代了梦想，一个人才算老。  
