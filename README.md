@@ -596,3 +596,6 @@ It is the unknown we fear when we look upon death and darkness. Nothing more.
 ### 2019-04-13  
 A man is not old as long as he is seeking something. A man is not old until regrets take the place of dreams.  
 只要一个人还有追求，他就没有老。直到后悔取代了梦想，一个人才算老。  
+### 2019-04-14  
+I disapprove of what you say, but I will defend to the death your right to say it.  
+我不同意你说的话，但我愿意誓死捍卫你说话的权利。  
