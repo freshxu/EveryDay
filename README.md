@@ -599,3 +599,6 @@ A man is not old as long as he is seeking something. A man is not old until regr
 ### 2019-04-14  
 I disapprove of what you say, but I will defend to the death your right to say it.  
 我不同意你说的话，但我愿意誓死捍卫你说话的权利。  
+### 2019-04-15  
+You don't know how long I've waited for you. I'd rather die than stay away from you.  
+你怎知我等了你多久，就算是以死来换得与你厮守，我也愿意。  
