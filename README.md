@@ -602,3 +602,6 @@ I disapprove of what you say, but I will defend to the death your right to say i
 ### 2019-04-15  
 You don't know how long I've waited for you. I'd rather die than stay away from you.  
 你怎知我等了你多久，就算是以死来换得与你厮守，我也愿意。  
+### 2019-04-16  
+It is the tears of the earth that keep her smiles in bloom.  
+是大地的泪点使她的微笑保持着青春不谢。  
