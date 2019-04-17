@@ -605,3 +605,6 @@ You don't know how long I've waited for you. I'd rather die than stay away from 
 ### 2019-04-16  
 It is the tears of the earth that keep her smiles in bloom.  
 是大地的泪点使她的微笑保持着青春不谢。  
+### 2019-04-17  
+I never give anything without expecting something in return. I always get paid.  
+我做任何事情不过是为了有所回报，我总要得到报酬。  
