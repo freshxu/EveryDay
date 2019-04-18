@@ -608,3 +608,6 @@ It is the tears of the earth that keep her smiles in bloom.
 ### 2019-04-17  
 I never give anything without expecting something in return. I always get paid.  
 我做任何事情不过是为了有所回报，我总要得到报酬。  
+### 2019-04-18  
+I figure life is a gift. I don’t intend on wasting it. To make each day count!  
+我认为生活就是上帝的恩赐。我不会白白浪费生命。让我们过好每一天！  
