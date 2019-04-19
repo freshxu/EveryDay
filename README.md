@@ -611,3 +611,6 @@ I never give anything without expecting something in return. I always get paid.
 ### 2019-04-18  
 I figure life is a gift. I don’t intend on wasting it. To make each day count!  
 我认为生活就是上帝的恩赐。我不会白白浪费生命。让我们过好每一天！  
+### 2019-04-19  
+The best love is the kind that awakens the soul and makes us reach for more, that plants a fire in our hearts and brings peace to our minds.  
+最好的爱能唤醒灵魂启发我们追求卓越，在我们的心里种下热情的火苗，并带给我们心灵的平静。  
