@@ -614,3 +614,6 @@ I figure life is a gift. I don’t intend on wasting it. To make each day count!
 ### 2019-04-19  
 The best love is the kind that awakens the soul and makes us reach for more, that plants a fire in our hearts and brings peace to our minds.  
 最好的爱能唤醒灵魂启发我们追求卓越，在我们的心里种下热情的火苗，并带给我们心灵的平静。  
+### 2019-04-20  
+In fact, if I close my eyes, I can still see you there just standing in the dawn light.  
+只要我闭上眼睛，就仿佛还能看到你站在那里，沐浴着黎明的曙光。  
