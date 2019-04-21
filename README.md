@@ -617,3 +617,6 @@ The best love is the kind that awakens the soul and makes us reach for more, tha
 ### 2019-04-20  
 In fact, if I close my eyes, I can still see you there just standing in the dawn light.  
 只要我闭上眼睛，就仿佛还能看到你站在那里，沐浴着黎明的曙光。  
+### 2019-04-21  
+Not until you see someone couple up will you realize how much you love him.  
+你永远也不晓得自己有多喜欢一个人，除非你看见他和别人在一起。  
