@@ -620,3 +620,6 @@ In fact, if I close my eyes, I can still see you there just standing in the dawn
 ### 2019-04-21  
 Not until you see someone couple up will you realize how much you love him.  
 你永远也不晓得自己有多喜欢一个人，除非你看见他和别人在一起。  
+### 2019-04-22  
+I can't turn away without knowing you'll be all right. That's all I want.  
+除非你过得好，否则我是不会放手的，这就是我想要的。  
