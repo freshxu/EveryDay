@@ -623,3 +623,6 @@ Not until you see someone couple up will you realize how much you love him.
 ### 2019-04-22  
 I can't turn away without knowing you'll be all right. That's all I want.  
 除非你过得好，否则我是不会放手的，这就是我想要的。  
+### 2019-04-23  
+There is no such thing as a great talent without great will.  
+没有伟大的意志力，便没有雄才大略。  
