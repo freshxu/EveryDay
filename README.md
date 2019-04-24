@@ -626,3 +626,6 @@ I can't turn away without knowing you'll be all right. That's all I want.
 ### 2019-04-23  
 There is no such thing as a great talent without great will.  
 没有伟大的意志力，便没有雄才大略。  
+### 2019-04-24  
+It had been a wonderful evening and what I needed now, to give it a perfect ending, was a little of the Ludwig Van.  
+真是个完美的晚上，我现在需要的就是给它来个完美的结束，比如说一小段贝多芬。  
