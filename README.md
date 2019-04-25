@@ -629,3 +629,6 @@ There is no such thing as a great talent without great will.
 ### 2019-04-24  
 It had been a wonderful evening and what I needed now, to give it a perfect ending, was a little of the Ludwig Van.  
 真是个完美的晚上，我现在需要的就是给它来个完美的结束，比如说一小段贝多芬。  
+### 2019-04-25  
+And as usual, my friend warned me not to cherish too big hope, but it is very difficult to do.  
+和往常一样，我的朋友提醒我不要抱太大希望，但是这点很难做到。  
