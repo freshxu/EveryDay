@@ -632,3 +632,6 @@ It had been a wonderful evening and what I needed now, to give it a perfect endi
 ### 2019-04-25  
 And as usual, my friend warned me not to cherish too big hope, but it is very difficult to do.  
 和往常一样，我的朋友提醒我不要抱太大希望，但是这点很难做到。  
+### 2019-04-26  
+Do not, for one repulse, give up the purpose that you resolved to effect.  
+不要只因一次失败，就放弃你原来决心想要达到的目的。  
