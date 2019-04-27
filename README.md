@@ -635,3 +635,6 @@ And as usual, my friend warned me not to cherish too big hope, but it is very di
 ### 2019-04-26  
 Do not, for one repulse, give up the purpose that you resolved to effect.  
 不要只因一次失败，就放弃你原来决心想要达到的目的。  
+### 2019-04-27  
+Death is just a part of life, something we're all destined to do.   
+死亡只是生命的一部分，是我们注定要做的一件事。  
