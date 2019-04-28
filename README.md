@@ -638,3 +638,6 @@ Do not, for one repulse, give up the purpose that you resolved to effect.
 ### 2019-04-27  
 Death is just a part of life, something we're all destined to do.   
 死亡只是生命的一部分，是我们注定要做的一件事。  
+### 2019-04-28  
+Fear can hold you prisoner. Hope can set you free. It takes a strong man to save himself, and a great man to save another.  
+懦怯囚禁人的灵魂，希望可以令你感受自由。强者自救，圣者渡人。  
