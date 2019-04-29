@@ -641,3 +641,6 @@ Death is just a part of life, something we're all destined to do.
 ### 2019-04-28  
 Fear can hold you prisoner. Hope can set you free. It takes a strong man to save himself, and a great man to save another.  
 懦怯囚禁人的灵魂，希望可以令你感受自由。强者自救，圣者渡人。  
+### 2019-04-29  
+The only way to do great work is to love what you do. If you haven't found it yet, keep looking.   
+成就一番伟业的唯一途径就是热爱自己的事业。如果你还没找到，继续寻找不要放弃。跟随自己的心，总有一天你会找到。  
