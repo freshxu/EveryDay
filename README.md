@@ -644,3 +644,6 @@ Fear can hold you prisoner. Hope can set you free. It takes a strong man to save
 ### 2019-04-29  
 The only way to do great work is to love what you do. If you haven't found it yet, keep looking.   
 成就一番伟业的唯一途径就是热爱自己的事业。如果你还没找到，继续寻找不要放弃。跟随自己的心，总有一天你会找到。  
+### 2019-04-30  
+Your mind is like this water, my friend. When it is agitated, it becomes difficult to see. But if you allow it to settle, the answer becomes clear.  
+我的朋友，你的心好似这潭湖水，如果波澜起伏就会模糊不清，不过当它平静下来，答案就清澈见底了。  
