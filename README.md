@@ -647,3 +647,6 @@ The only way to do great work is to love what you do. If you haven't found it ye
 ### 2019-04-30  
 Your mind is like this water, my friend. When it is agitated, it becomes difficult to see. But if you allow it to settle, the answer becomes clear.  
 我的朋友，你的心好似这潭湖水，如果波澜起伏就会模糊不清，不过当它平静下来，答案就清澈见底了。  
+### 2019-05-01  
+You're throwing away happiness with both hands and reaching out for something that will never make you happy.  
+你在把自己的幸福拱手相让去追求一些根本不会让你幸福的东西。  
