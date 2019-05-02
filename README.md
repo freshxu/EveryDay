@@ -650,3 +650,6 @@ Your mind is like this water, my friend. When it is agitated, it becomes difficu
 ### 2019-05-01  
 You're throwing away happiness with both hands and reaching out for something that will never make you happy.  
 你在把自己的幸福拱手相让去追求一些根本不会让你幸福的东西。  
+### 2019-05-02  
+Age is an issue of mind over matter. If you don't mind, it doesn't matter.  
+变老无关乎物质，只在乎心灵。如果自己不介意，那么没人会在意。  
