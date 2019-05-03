@@ -653,3 +653,6 @@ You're throwing away happiness with both hands and reaching out for something th
 ### 2019-05-02  
 Age is an issue of mind over matter. If you don't mind, it doesn't matter.  
 变老无关乎物质，只在乎心灵。如果自己不介意，那么没人会在意。  
+### 2019-05-03  
+The older I grow the more I distrust the familiar doctrine that age brings wisdom.  
+年纪越大我就越不相信那句教条：年龄带给人智慧。  
