@@ -656,3 +656,6 @@ Age is an issue of mind over matter. If you don't mind, it doesn't matter.
 ### 2019-05-03  
 The older I grow the more I distrust the familiar doctrine that age brings wisdom.  
 年纪越大我就越不相信那句教条：年龄带给人智慧。  
+### 2019-05-04  
+The secret of man's being is not only to live but to have something to live for.  
+人类生存的秘密，不但是要活，还要知道为何而活。  
