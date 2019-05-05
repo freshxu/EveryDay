@@ -659,3 +659,6 @@ The older I grow the more I distrust the familiar doctrine that age brings wisdo
 ### 2019-05-04  
 The secret of man's being is not only to live but to have something to live for.  
 人类生存的秘密，不但是要活，还要知道为何而活。  
+### 2019-05-05  
+The lover of nature is he whose inward and outward senses are still truly adjusted to each other; who has retained the spirit of infancy even into the era of manhood.  
+热爱大自然的人内外感觉协调一致，即使进入成年后依然保持着童心。  
