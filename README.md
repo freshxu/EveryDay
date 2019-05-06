@@ -662,3 +662,6 @@ The secret of man's being is not only to live but to have something to live for.
 ### 2019-05-05  
 The lover of nature is he whose inward and outward senses are still truly adjusted to each other; who has retained the spirit of infancy even into the era of manhood.  
 热爱大自然的人内外感觉协调一致，即使进入成年后依然保持着童心。  
+### 2019-05-06  
+All those moments will be lost in time, like tears in rain. Time to die.  
+所有这些瞬间，都将湮没于时间的洪流中。就像泪水消逝在雨中一样。死期到了。  
