@@ -665,3 +665,6 @@ The lover of nature is he whose inward and outward senses are still truly adjust
 ### 2019-05-06  
 All those moments will be lost in time, like tears in rain. Time to die.  
 所有这些瞬间，都将湮没于时间的洪流中。就像泪水消逝在雨中一样。死期到了。  
+### 2019-05-07  
+There is a saying: Yesterday is history, tomorrow is a mystery, but today is a gift. That is why it is called the present.  
+俗话说昨日已成往事，未来还未可知，今时却是上苍所给的礼物，这也就是为什么我们称今时为礼物。  
