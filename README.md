@@ -668,3 +668,6 @@ All those moments will be lost in time, like tears in rain. Time to die.
 ### 2019-05-07  
 There is a saying: Yesterday is history, tomorrow is a mystery, but today is a gift. That is why it is called the present.  
 俗话说昨日已成往事，未来还未可知，今时却是上苍所给的礼物，这也就是为什么我们称今时为礼物。  
+### 2019-05-08  
+I have to remind myself that some birds aren't meant to be caged. Their feathers are just too bright.  
+我必须时刻提醒自己有些鸟儿注定不会被关在牢笼里，它们的每一片羽毛都闪耀着自由的光辉。  
