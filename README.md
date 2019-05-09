@@ -671,3 +671,6 @@ There is a saying: Yesterday is history, tomorrow is a mystery, but today is a g
 ### 2019-05-08  
 I have to remind myself that some birds aren't meant to be caged. Their feathers are just too bright.  
 我必须时刻提醒自己有些鸟儿注定不会被关在牢笼里，它们的每一片羽毛都闪耀着自由的光辉。  
+### 2019-05-09  
+The world is a fine place and worth fighting for.  
+这世界真是个好地方，值得为它奋斗。  
