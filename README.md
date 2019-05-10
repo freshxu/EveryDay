@@ -674,3 +674,6 @@ I have to remind myself that some birds aren't meant to be caged. Their feathers
 ### 2019-05-09  
 The world is a fine place and worth fighting for.  
 这世界真是个好地方，值得为它奋斗。  
+### 2019-05-10  
+Forgiveness is the fragrance that the violet sheds on the heel that has crushed it.  
+紫罗兰把它的香气留在那踩扁了它的脚踝上，这就是宽恕。  
