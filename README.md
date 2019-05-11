@@ -677,3 +677,6 @@ The world is a fine place and worth fighting for.
 ### 2019-05-10  
 Forgiveness is the fragrance that the violet sheds on the heel that has crushed it.  
 紫罗兰把它的香气留在那踩扁了它的脚踝上，这就是宽恕。  
+### 2019-05-11  
+I came here tonight because when you realize you want to spend the rest of your life with somebody, you want the rest of your life to start as soon as possible.  
+若我想与你共度余生，我希望我的余生尽早开始。  
