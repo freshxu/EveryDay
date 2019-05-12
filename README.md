@@ -680,3 +680,6 @@ Forgiveness is the fragrance that the violet sheds on the heel that has crushed 
 ### 2019-05-11  
 I came here tonight because when you realize you want to spend the rest of your life with somebody, you want the rest of your life to start as soon as possible.  
 若我想与你共度余生，我希望我的余生尽早开始。  
+### 2019-05-12  
+Human felicity is produced not so much by great pieces of good fortune that seldom happen, as by little advantages that occur every day.  
+与其说人类的幸福来自偶尔发生的鸿运，不如说来自每天都有的小实惠。  
