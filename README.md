@@ -683,3 +683,6 @@ I came here tonight because when you realize you want to spend the rest of your 
 ### 2019-05-12  
 Human felicity is produced not so much by great pieces of good fortune that seldom happen, as by little advantages that occur every day.  
 与其说人类的幸福来自偶尔发生的鸿运，不如说来自每天都有的小实惠。  
+### 2019-05-13  
+Somewhere beyond right and wrong, there is a garden, I will meet you there.   
+在超离是非之处有座花园，我会在那里与你相遇。  
