@@ -686,3 +686,6 @@ Human felicity is produced not so much by great pieces of good fortune that seld
 ### 2019-05-13  
 Somewhere beyond right and wrong, there is a garden, I will meet you there.   
 在超离是非之处有座花园，我会在那里与你相遇。  
+### 2019-05-14  
+He was still too young to know that the heart's memory eliminates the bad and magnifies the good, and that thanks to this artifice we manage to endure the burden of the past.  
+当时他还太年轻，不知道人内心会删除糟糕的记忆、放大美好的记忆。也正是因为这个功能，我们才能背负着过去的负担前行。  
