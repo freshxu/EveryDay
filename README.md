@@ -689,3 +689,6 @@ Somewhere beyond right and wrong, there is a garden, I will meet you there.
 ### 2019-05-14  
 He was still too young to know that the heart's memory eliminates the bad and magnifies the good, and that thanks to this artifice we manage to endure the burden of the past.  
 当时他还太年轻，不知道人内心会删除糟糕的记忆、放大美好的记忆。也正是因为这个功能，我们才能背负着过去的负担前行。  
+### 2019-05-15  
+Happiness lies not in the mere possession of money, it lies in the joy of achievement, in the thrill of creative effort.  
+幸福不在于拥有金钱，而在于获得成就时的喜悦以及产生创造力的激情。  
