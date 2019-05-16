@@ -692,3 +692,6 @@ He was still too young to know that the heart's memory eliminates the bad and ma
 ### 2019-05-15  
 Happiness lies not in the mere possession of money, it lies in the joy of achievement, in the thrill of creative effort.  
 幸福不在于拥有金钱，而在于获得成就时的喜悦以及产生创造力的激情。  
+### 2019-05-16  
+In spite of you and me and the whole silly world going to pieces around us, I love you.  
+哪怕是世界末日，我都会爱着你。  
