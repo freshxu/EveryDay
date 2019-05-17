@@ -695,3 +695,6 @@ Happiness lies not in the mere possession of money, it lies in the joy of achiev
 ### 2019-05-16  
 In spite of you and me and the whole silly world going to pieces around us, I love you.  
 哪怕是世界末日，我都会爱着你。  
+### 2019-05-17  
+When you meet someone and you're attracted to them, it just means that your subconscious is attracted to their subconscious, subconsciously.  
+当你被某个人吸引时，那只是意味着你俩在潜意识里互相吸引。  
