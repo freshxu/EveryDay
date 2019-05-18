@@ -698,3 +698,6 @@ In spite of you and me and the whole silly world going to pieces around us, I lo
 ### 2019-05-17  
 When you meet someone and you're attracted to them, it just means that your subconscious is attracted to their subconscious, subconsciously.  
 当你被某个人吸引时，那只是意味着你俩在潜意识里互相吸引。  
+### 2019-05-18  
+Time erodes all such beauty but what it cannot diminish is the wonderful workings of your mind, your humor, your kindness and your moral courage.  
+时间可以吞噬一切，但它丝毫无法减少的是你伟大的思想，你的幽默，你的善良还有你的勇气。  
