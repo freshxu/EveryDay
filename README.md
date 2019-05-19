@@ -701,3 +701,6 @@ When you meet someone and you're attracted to them, it just means that your subc
 ### 2019-05-18  
 Time erodes all such beauty but what it cannot diminish is the wonderful workings of your mind, your humor, your kindness and your moral courage.  
 时间可以吞噬一切，但它丝毫无法减少的是你伟大的思想，你的幽默，你的善良还有你的勇气。  
+### 2019-05-19  
+Storm clouds may gather and stars my collide but I love you until the end of time.  
+暴风雨的乌云可能会聚集，星辰可能会碰撞，可是我会永远爱你直到地老天荒。  
