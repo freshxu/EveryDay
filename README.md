@@ -704,3 +704,6 @@ Time erodes all such beauty but what it cannot diminish is the wonderful working
 ### 2019-05-19  
 Storm clouds may gather and stars my collide but I love you until the end of time.  
 暴风雨的乌云可能会聚集，星辰可能会碰撞，可是我会永远爱你直到地老天荒。  
+### 2019-05-20  
+I would rather sit on a pumpkin and have it all to myself, than be crowded on a velvet cushion.  
+我宁愿住在乡村小镇上自得其乐，而不愿和人一起挤在天鹅绒的坐垫上。  
