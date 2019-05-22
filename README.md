@@ -710,3 +710,6 @@ I would rather sit on a pumpkin and have it all to myself, than be crowded on a 
 ### 2019-05-21  
 You must strive to find your own voice. Because the longer you wait to begin, the less likely you are to find it at all.  
  你们必须努力寻找自己的声音，因为你越迟开始寻找,找到的可能性就越小。  
+### 2019-05-22  
+No matter what happens, or how bad it seems today, life does go on, and it will be better tomorrow.   
+不管发生什么，不管今天看起来多么糟糕，生活都会继续，明天会更好。  
