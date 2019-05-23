@@ -713,3 +713,6 @@ You must strive to find your own voice. Because the longer you wait to begin, th
 ### 2019-05-22  
 No matter what happens, or how bad it seems today, life does go on, and it will be better tomorrow.   
 不管发生什么，不管今天看起来多么糟糕，生活都会继续，明天会更好。  
+### 2019-05-23  
+If there is any kind of magic in the world, it must be the attempt of understanding someone or sharing something.  
+如果世上真的有什么奇迹，那么一定是去理解他人和与人分享。  
