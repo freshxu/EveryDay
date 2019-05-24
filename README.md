@@ -716,3 +716,6 @@ No matter what happens, or how bad it seems today, life does go on, and it will 
 ### 2019-05-23  
 If there is any kind of magic in the world, it must be the attempt of understanding someone or sharing something.  
 如果世上真的有什么奇迹，那么一定是去理解他人和与人分享。  
+### 2019-05-24  
+It is the business of the very few to be independent; it is a privilege of the strong.   
+只有少数人能做到独立自主；那是强者的特权。  
