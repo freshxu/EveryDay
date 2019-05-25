@@ -719,3 +719,6 @@ If there is any kind of magic in the world, it must be the attempt of understand
 ### 2019-05-24  
 It is the business of the very few to be independent; it is a privilege of the strong.   
 只有少数人能做到独立自主；那是强者的特权。  
+### 2019-05-25  
+Our destiny offers not the cup of despair, but the chalice of opportunity. So let us seize it, not in fear, but in gladness.  
+命运给予我们的不是失望之酒,而是机会之杯. 因此,让我们毫无畏惧,满心愉悦地把握命运。  
