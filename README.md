@@ -722,3 +722,6 @@ It is the business of the very few to be independent; it is a privilege of the s
 ### 2019-05-25  
 Our destiny offers not the cup of despair, but the chalice of opportunity. So let us seize it, not in fear, but in gladness.  
 命运给予我们的不是失望之酒,而是机会之杯. 因此,让我们毫无畏惧,满心愉悦地把握命运。  
+### 2019-05-26  
+All our dreams can come true, if we have the courage to pursue them.  
+如果我们有勇气去追求，所有的梦想都可以现实。  
