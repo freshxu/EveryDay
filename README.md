@@ -725,3 +725,6 @@ Our destiny offers not the cup of despair, but the chalice of opportunity. So l
 ### 2019-05-26  
 All our dreams can come true, if we have the courage to pursue them.  
 如果我们有勇气去追求，所有的梦想都可以现实。  
+### 2019-05-27  
+A great poem is a fountain forever overflowing with the waters of wisdom and delight.  
+一首伟大的诗犹如一座喷泉，不断地喷出智慧和快乐的泉水  
