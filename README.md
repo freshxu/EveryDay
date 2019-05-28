@@ -728,3 +728,6 @@ All our dreams can come true, if we have the courage to pursue them.
 ### 2019-05-27  
 A great poem is a fountain forever overflowing with the waters of wisdom and delight.  
 一首伟大的诗犹如一座喷泉，不断地喷出智慧和快乐的泉水  
+### 2019-05-28  
+As selfishness and complaint pervert the mind,so love with its joy clears and sharpens the vision.  
+自私和抱怨是心灵的阴暗，愉快的爱则使视野明朗开阔。  
