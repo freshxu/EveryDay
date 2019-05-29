@@ -731,3 +731,6 @@ A great poem is a fountain forever overflowing with the waters of wisdom and del
 ### 2019-05-28  
 As selfishness and complaint pervert the mind,so love with its joy clears and sharpens the vision.  
 自私和抱怨是心灵的阴暗，愉快的爱则使视野明朗开阔。  
+### 2019-05-29  
+ You have to believe in yourself. That's the secret.  
+人必须相信自己，这是成功的秘诀。  
