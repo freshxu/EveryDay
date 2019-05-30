@@ -734,3 +734,6 @@ As selfishness and complaint pervert the mind,so love with its joy clears and sh
 ### 2019-05-29  
  You have to believe in yourself. That's the secret.  
 人必须相信自己，这是成功的秘诀。  
+### 2019-05-30  
+It is only in the mysterious equations of love that any logic or reasons can be found.  
+只有在这种神秘的爱情方程中，才能找到逻辑或原由。  
