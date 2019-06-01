@@ -737,3 +737,6 @@ As selfishness and complaint pervert the mind,so love with its joy clears and sh
 ### 2019-05-30  
 It is only in the mysterious equations of love that any logic or reasons can be found.  
 只有在这种神秘的爱情方程中，才能找到逻辑或原由。  
+### 2019-06-01  
+I have nothing to offer but blood, toil, tears and sweat.  
+我所能奉献的没有其他，只有热血、辛劳、眼泪与汗水。  
