@@ -740,3 +740,6 @@ It is only in the mysterious equations of love that any logic or reasons can be 
 ### 2019-06-01  
 I have nothing to offer but blood, toil, tears and sweat.  
 我所能奉献的没有其他，只有热血、辛劳、眼泪与汗水。  
+### 2019-06-02  
+The reading of all good books is like a conversation with the finest minds of past centuries.  
+读好书，如同与先哲们交谈。  
