@@ -743,3 +743,6 @@ I have nothing to offer but blood, toil, tears and sweat.
 ### 2019-06-02  
 The reading of all good books is like a conversation with the finest minds of past centuries.  
 读好书，如同与先哲们交谈。  
+### 2019-06-03  
+New lovers are nervous and tender, but smash everything- for the heart is an organ of fire.   
+初恋的人们心存紧张并满怀柔情，但却可以抵御一切—— 只因为心如烈火！  
