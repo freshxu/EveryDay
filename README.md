@@ -746,3 +746,6 @@ The reading of all good books is like a conversation with the finest minds of pa
 ### 2019-06-03  
 New lovers are nervous and tender, but smash everything- for the heart is an organ of fire.   
 初恋的人们心存紧张并满怀柔情，但却可以抵御一切—— 只因为心如烈火！  
+### 2019-06-04  
+Everything can be taken from a man but one thing: the last of human freedoms- to choose one's  attitude in any given set of circumstances, to choose one's own way.  
+我可以拿走人的任何东西，但有一样不行，这就是在特定环境下选择自己的生活态度的自由。  
