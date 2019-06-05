@@ -749,3 +749,6 @@ New lovers are nervous and tender, but smash everything- for the heart is an org
 ### 2019-06-04  
 Everything can be taken from a man but one thing: the last of human freedoms- to choose one's  attitude in any given set of circumstances, to choose one's own way.  
 我可以拿走人的任何东西，但有一样不行，这就是在特定环境下选择自己的生活态度的自由。  
+### 2019-06-05  
+ It's the unspoken truth of humanity that you crave subjugation. The bright lure of freedom diminishes your life's joy in a mad scramble for power, for identity.  
+这才是人性的本质，你们内心渴望被征服，疲于追逐光鲜的自由，而丢失了生活的乐趣，迷失在权利的角逐，就为获得认同。  
