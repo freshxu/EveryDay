@@ -755,3 +755,6 @@ Everything can be taken from a man but one thing: the last of human freedoms- to
 ### 2019-06-06  
 We have no more right to consume happiness without producing it than to consume wealth without producing it.  
 不创造幸福的人无权享用幸福，正如不创造财富的人无权享用财富一样。  
+### 2019-06-07  
+I feel heartfelt sorrow for the mother of Private James Ryan and am willing to lay down my life and the lives of my men – especially you, Reiben – to ease her suffering.  
+我为瑞恩的母亲由衷感到悲哀，我愿意用我和弟兄们的生命去拯救你的生命来减轻她的苦痛。   
