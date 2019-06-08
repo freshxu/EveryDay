@@ -758,3 +758,6 @@ We have no more right to consume happiness without producing it than to consume 
 ### 2019-06-07  
 I feel heartfelt sorrow for the mother of Private James Ryan and am willing to lay down my life and the lives of my men – especially you, Reiben – to ease her suffering.  
 我为瑞恩的母亲由衷感到悲哀，我愿意用我和弟兄们的生命去拯救你的生命来减轻她的苦痛。   
+### 2019-06-08  
+You played out your happiness on a piano that was not infinite. I learned to live that way.   
+在有限的钢琴上，我自得其乐，我过惯那样的日子了。  
