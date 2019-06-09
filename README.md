@@ -761,3 +761,6 @@ I feel heartfelt sorrow for the mother of Private James Ryan and am willing to l
 ### 2019-06-08  
 You played out your happiness on a piano that was not infinite. I learned to live that way.   
 在有限的钢琴上，我自得其乐，我过惯那样的日子了。  
+### 2019-06-09  
+Learning is an ornament in prosperity, a refuge in adversity, and a provision in old age.  
+学问在成功时是装饰品，在失意时是庇护所，在年老时是供应品。  
