@@ -764,3 +764,6 @@ You played out your happiness on a piano that was not infinite. I learned to liv
 ### 2019-06-09  
 Learning is an ornament in prosperity, a refuge in adversity, and a provision in old age.  
 学问在成功时是装饰品，在失意时是庇护所，在年老时是供应品。  
+### 2019-06-10  
+Go back to England, and tell them there, that Scotland's daughters and sons are yours no more. Tell them Scotland is free.  
+回去告诉整个英格兰，苏格兰儿女不再是他们的臣民，告诉他们苏格兰是自由的。  
