@@ -767,3 +767,6 @@ Learning is an ornament in prosperity, a refuge in adversity, and a provision in
 ### 2019-06-10  
 Go back to England, and tell them there, that Scotland's daughters and sons are yours no more. Tell them Scotland is free.  
 回去告诉整个英格兰，苏格兰儿女不再是他们的臣民，告诉他们苏格兰是自由的。  
+### 2019-06-11  
+The tragedy of life is not so much what men suffer, but what they miss.  
+生活的悲剧不在于人们受多少苦，而在于人们错过了什么。  
