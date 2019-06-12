@@ -770,3 +770,6 @@ Go back to England, and tell them there, that Scotland's daughters and sons are 
 ### 2019-06-11  
 The tragedy of life is not so much what men suffer, but what they miss.  
 生活的悲剧不在于人们受多少苦，而在于人们错过了什么。  
+### 2019-06-12  
+Sometimes your whole life boils down to one insane move.  
+人一生中出人头地的机会不多，一旦有了一定要抓住机会！  
