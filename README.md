@@ -773,3 +773,6 @@ The tragedy of life is not so much what men suffer, but what they miss.
 ### 2019-06-12  
 Sometimes your whole life boils down to one insane move.  
 人一生中出人头地的机会不多，一旦有了一定要抓住机会！  
+### 2019-06-13  
+Without you, today's emotions would be the scurf of yesterday's.  
+如果没有你，如此的良辰美景让我去向何人诉说？  
