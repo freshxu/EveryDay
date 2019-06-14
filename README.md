@@ -776,3 +776,6 @@ Sometimes your whole life boils down to one insane move.
 ### 2019-06-13  
 Without you, today's emotions would be the scurf of yesterday's.  
 如果没有你，如此的良辰美景让我去向何人诉说？  
+### 2019-06-14  
+Although the world is full of suffering, it is also full of the overcoming of it.  
+虽然世界多苦难，但是苦难总是能战胜的。  
