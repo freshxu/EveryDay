@@ -779,3 +779,6 @@ Without you, today's emotions would be the scurf of yesterday's.
 ### 2019-06-14  
 Although the world is full of suffering, it is also full of the overcoming of it.  
 虽然世界多苦难，但是苦难总是能战胜的。  
+### 2019-06-15  
+I had always heard your entire life flashes in front of your eyes the second before you die. First of all, that one second isn’t a second at all, it stretches on forever, like an ocean of time.  
+听说人在死前的一秒钟，其一生会闪过眼前。其实不是一秒，而是无尽的时间，时间海洋。  
