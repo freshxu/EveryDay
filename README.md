@@ -782,3 +782,6 @@ Although the world is full of suffering, it is also full of the overcoming of it
 ### 2019-06-15  
 I had always heard your entire life flashes in front of your eyes the second before you die. First of all, that one second isn’t a second at all, it stretches on forever, like an ocean of time.  
 听说人在死前的一秒钟，其一生会闪过眼前。其实不是一秒，而是无尽的时间，时间海洋。  
+### 2019-06-16  
+A single idea from the human mind can build cities. An idea can transform the world and rewrite all the rules.  
+人类一个简单的念头可以创造城市。一个念头可以改变世界，重写规则。  
