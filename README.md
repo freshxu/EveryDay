@@ -785,3 +785,6 @@ I had always heard your entire life flashes in front of your eyes the second bef
 ### 2019-06-16  
 A single idea from the human mind can build cities. An idea can transform the world and rewrite all the rules.  
 人类一个简单的念头可以创造城市。一个念头可以改变世界，重写规则。  
+### 2019-06-17  
+Every person has two educations, one which he receives from others, and one, more important, which he gives to himself.  
+每个人都受两种教育，一种来自别人，另一种更重要，是来自自己。  
