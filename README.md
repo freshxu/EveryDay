@@ -788,3 +788,6 @@ A single idea from the human mind can build cities. An idea can transform the wo
 ### 2019-06-17  
 Every person has two educations, one which he receives from others, and one, more important, which he gives to himself.  
 每个人都受两种教育，一种来自别人，另一种更重要，是来自自己。  
+### 2019-06-18  
+I'm proud to have served with each and every one of you. You deserve long and happy lives in peace.  
+我很骄傲能与你们每个人共同服役，你们有权享受永远快乐的和平生活。  
