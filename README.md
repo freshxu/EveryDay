@@ -791,3 +791,6 @@ Every person has two educations, one which he receives from others, and one, mor
 ### 2019-06-18  
 I'm proud to have served with each and every one of you. You deserve long and happy lives in peace.  
 我很骄傲能与你们每个人共同服役，你们有权享受永远快乐的和平生活。  
+### 2019-06-19  
+When peace has been broken anywhere, the peace of all countries everywhere is in danger.  
+无论哪个地区的和平遭到破坏，世界各国的和平都会受到威胁。  
