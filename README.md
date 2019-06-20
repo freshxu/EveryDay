@@ -794,3 +794,6 @@ I'm proud to have served with each and every one of you. You deserve long and ha
 ### 2019-06-19  
 When peace has been broken anywhere, the peace of all countries everywhere is in danger.  
 无论哪个地区的和平遭到破坏，世界各国的和平都会受到威胁。  
+### 2019-06-20  
+Rudeness is merely an expression of fear.  
+无礼只是恐惧的一种表露。  
