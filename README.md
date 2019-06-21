@@ -797,3 +797,6 @@ When peace has been broken anywhere, the peace of all countries everywhere is in
 ### 2019-06-20  
 Rudeness is merely an expression of fear.  
 无礼只是恐惧的一种表露。  
+### 2019-06-21  
+Until such time as the world ends, we will act as though it intends to spin on.  
+不到地球毁灭那一刻，我们都得做好本职工作。  
