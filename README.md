@@ -800,3 +800,6 @@ Rudeness is merely an expression of fear.
 ### 2019-06-21  
 Until such time as the world ends, we will act as though it intends to spin on.  
 不到地球毁灭那一刻，我们都得做好本职工作。  
+### 2019-06-22  
+If you want to live your whole life free from pain, you must become either a god or else a corpse. Consider other men's troubles and that will comfort yours.  
+如果你想一生摆脱苦难，你就得是神或者是死尸。想想他人的不幸，你就能坦然面对人生。  
