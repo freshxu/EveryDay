@@ -803,3 +803,6 @@ Until such time as the world ends, we will act as though it intends to spin on.
 ### 2019-06-22  
 If you want to live your whole life free from pain, you must become either a god or else a corpse. Consider other men's troubles and that will comfort yours.  
 如果你想一生摆脱苦难，你就得是神或者是死尸。想想他人的不幸，你就能坦然面对人生。  
+### 2019-06-23  
+Innovation distinguishes between the leader and the follower.  
+领导者和跟随者的区别在于是否有创新能力。  
