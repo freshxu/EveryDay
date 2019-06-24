@@ -806,3 +806,6 @@ If you want to live your whole life free from pain, you must become either a god
 ### 2019-06-23  
 Innovation distinguishes between the leader and the follower.  
 领导者和跟随者的区别在于是否有创新能力。  
+### 2019-06-24  
+If you wish to survive, you need to cultivate a strong mental attitude.  
+如果你想活着，你需要培养一种坚强的精神态度  
