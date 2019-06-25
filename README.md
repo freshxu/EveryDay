@@ -809,3 +809,6 @@ Innovation distinguishes between the leader and the follower.
 ### 2019-06-24  
 If you wish to survive, you need to cultivate a strong mental attitude.  
 如果你想活着，你需要培养一种坚强的精神态度  
+### 2019-06-25  
+Rudeness is merely the expression of fear. People fear they won't get what they want. The most dreadful and unattractive person only needs to be loved, and they will open up like a flower.  
+粗鲁只是恐惧的表现。人们恐惧无法得到所期望的。最可怕的、不招人喜爱的人也只是需要被爱，那么他们便会像花儿般绽放。  
