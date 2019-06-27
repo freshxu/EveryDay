@@ -815,3 +815,6 @@ Rudeness is merely the expression of fear. People fear they won't get what they 
 ### 2019-06-26  
 Pay attention to your enemies, for they are the first to discover your mistakes.  
 要重视你的敌人，因为他们总是能第一个发现你的错误。  
+### 2019-06-27  
+Genius is one percent inspiration and ninety-nine percent perspiration.  
+天才等于百分之一的灵感加百分之九十九的汗水。  
