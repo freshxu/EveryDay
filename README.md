@@ -818,3 +818,6 @@ Pay attention to your enemies, for they are the first to discover your mistakes.
 ### 2019-06-27  
 Genius is one percent inspiration and ninety-nine percent perspiration.  
 天才等于百分之一的灵感加百分之九十九的汗水。  
+### 2019-06-28  
+The three foundations of learning: seeing much, suffering much and studying much.  
+求学的三个基本条件：多观察，多吃苦，多研究。  
