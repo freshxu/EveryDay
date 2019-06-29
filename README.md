@@ -821,3 +821,6 @@ Genius is one percent inspiration and ninety-nine percent perspiration.
 ### 2019-06-28  
 The three foundations of learning: seeing much, suffering much and studying much.  
 求学的三个基本条件：多观察，多吃苦，多研究。  
+### 2019-06-29  
+When a man is wrapped up in himself, he makes a pretty little package.  
+一个只顾自己的人不足以成大器。  
