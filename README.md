@@ -824,3 +824,6 @@ The three foundations of learning: seeing much, suffering much and studying much
 ### 2019-06-29  
 When a man is wrapped up in himself, he makes a pretty little package.  
 一个只顾自己的人不足以成大器。  
+### 2019-06-30  
+Whenever you feel like criticizing anyone,” he told me, “just remember that all the people in this world haven’t had the advantages that you’ve had.  
+每当你觉得想要批评什么人的时候，你且要记着，这个世界上的人并非都具备你禀有的条件。  
