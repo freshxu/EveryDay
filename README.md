@@ -827,3 +827,6 @@ When a man is wrapped up in himself, he makes a pretty little package.
 ### 2019-06-30  
 Whenever you feel like criticizing anyone,” he told me, “just remember that all the people in this world haven’t had the advantages that you’ve had.  
 每当你觉得想要批评什么人的时候，你且要记着，这个世界上的人并非都具备你禀有的条件。  
+### 2019-07-01  
+I know you'll never forgive me, and I don't blame you. I wouldn't forgive me either. I was ignorant and irresponsible and small-minded.  
+我知道，你永远都不会原谅我。我不怪你，换做我，我也不会原谅我自己。 我又无知，又不负责，心胸也十分狭窄。  
