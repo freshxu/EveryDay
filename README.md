@@ -830,3 +830,6 @@ Whenever you feel like criticizing anyone,” he told me, “just remember that 
 ### 2019-07-01  
 I know you'll never forgive me, and I don't blame you. I wouldn't forgive me either. I was ignorant and irresponsible and small-minded.  
 我知道，你永远都不会原谅我。我不怪你，换做我，我也不会原谅我自己。 我又无知，又不负责，心胸也十分狭窄。  
+### 2019-07-02  
+People think the writer's imagination is always at work, that he's constantly inventing an endless supply of incidents and episodes; that he simply dreams up his stories out of thin air.  
+人们认为作家的想象力永不枯竭，所以他能够源源不断地创作出各种事件和情节，并且他们创作的故事仅仅是凭空而造的。  
