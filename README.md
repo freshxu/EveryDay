@@ -833,3 +833,6 @@ I know you'll never forgive me, and I don't blame you. I wouldn't forgive me eit
 ### 2019-07-02  
 People think the writer's imagination is always at work, that he's constantly inventing an endless supply of incidents and episodes; that he simply dreams up his stories out of thin air.  
 人们认为作家的想象力永不枯竭，所以他能够源源不断地创作出各种事件和情节，并且他们创作的故事仅仅是凭空而造的。  
+### 2019-07-03  
+Always bear in mind that your own resolution to succeed is more important than any other.  
+永远记住：决心成功比任何一件事都重要。  
