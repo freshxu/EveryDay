@@ -836,3 +836,6 @@ People think the writer's imagination is always at work, that he's constantly in
 ### 2019-07-03  
 Always bear in mind that your own resolution to succeed is more important than any other.  
 永远记住：决心成功比任何一件事都重要。  
+### 2019-07-04  
+It has done me good, because of the color of the wheat fields. Go and look again at the roses. You will understand now that yours is unique in all the world.  
+驯服对我是有好处的——因为麦田的颜色。再回头看那些玫瑰花吧！到时你就明白你的玫瑰花仍是举世无双的一朵花。  
