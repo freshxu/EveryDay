@@ -839,3 +839,6 @@ Always bear in mind that your own resolution to succeed is more important than a
 ### 2019-07-04  
 It has done me good, because of the color of the wheat fields. Go and look again at the roses. You will understand now that yours is unique in all the world.  
 驯服对我是有好处的——因为麦田的颜色。再回头看那些玫瑰花吧！到时你就明白你的玫瑰花仍是举世无双的一朵花。  
+### 2019-07-05  
+And now here is my secret, a very simple secret: It is only with the heart that one can see rightly; what is essential is invisible to the eye.  
+这是我的一个秘密，一个再简单不过的秘密：一个人只有用心去看，才能看到真实。事情的真相仅凭肉眼是无法看穿的。  
