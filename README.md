@@ -842,3 +842,6 @@ It has done me good, because of the color of the wheat fields. Go and look again
 ### 2019-07-05  
 And now here is my secret, a very simple secret: It is only with the heart that one can see rightly; what is essential is invisible to the eye.  
 这是我的一个秘密，一个再简单不过的秘密：一个人只有用心去看，才能看到真实。事情的真相仅凭肉眼是无法看穿的。  
+### 2019-07-06  
+Every new day begins with possibilities. It's up to us to fill it with the things that move us toward progress and peace.  
+每一天都以无限的可能开始，我们本身决定着这一天是否进步或者安心。  
