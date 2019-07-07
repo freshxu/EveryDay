@@ -845,3 +845,6 @@ And now here is my secret, a very simple secret: It is only with the heart that 
 ### 2019-07-06  
 Every new day begins with possibilities. It's up to us to fill it with the things that move us toward progress and peace.  
 每一天都以无限的可能开始，我们本身决定着这一天是否进步或者安心。  
+### 2019-07-07  
+If you are not in good control of time or cannot set priorities for different matters, what you do is surely to be rebated.  
+无法充分掌握时间、区别事情的缓急先后，你所做的一切都大打折扣  
