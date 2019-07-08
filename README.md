@@ -848,3 +848,6 @@ Every new day begins with possibilities. It's up to us to fill it with the thing
 ### 2019-07-07  
 If you are not in good control of time or cannot set priorities for different matters, what you do is surely to be rebated.  
 无法充分掌握时间、区别事情的缓急先后，你所做的一切都大打折扣  
+### 2019-07-08  
+If time being of all things the most precious, wasting time must be the greatest prodigality.  
+如果时间是最宝贵的东西，浪费时间应该是最大的挥霍。  
