@@ -851,3 +851,6 @@ If you are not in good control of time or cannot set priorities for different ma
 ### 2019-07-08  
 If time being of all things the most precious, wasting time must be the greatest prodigality.  
 如果时间是最宝贵的东西，浪费时间应该是最大的挥霍。  
+### 2019-07-09  
+There are no secrets to success. It is the result of preparation, hard work and learning from failure.   
+成功没有秘诀。它源自充分的准备，努力地工作，来自从失败中汲取的教训。  
