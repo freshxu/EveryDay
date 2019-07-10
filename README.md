@@ -854,3 +854,6 @@ If time being of all things the most precious, wasting time must be the greatest
 ### 2019-07-09  
 There are no secrets to success. It is the result of preparation, hard work and learning from failure.   
 成功没有秘诀。它源自充分的准备，努力地工作，来自从失败中汲取的教训。  
+### 2019-07-10  
+Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.  
+局限只存在于我们的大脑中。可是如果我们运用自己的想象力，就会获得无限的可能性。  
