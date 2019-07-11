@@ -857,3 +857,6 @@ There are no secrets to success. It is the result of preparation, hard work and 
 ### 2019-07-10  
 Limitations live only in our minds. But if we use our imaginations, our possibilities become limitless.  
 局限只存在于我们的大脑中。可是如果我们运用自己的想象力，就会获得无限的可能性。  
+### 2019-07-11  
+Some of the world's greatest feats were accomplished by people not smart enough to know they were impossible.  
+世上有些丰功伟绩之所以能缔造，是因为有些人不够“聪明”，不知道那些原是不可能的。  
