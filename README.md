@@ -860,3 +860,6 @@ Limitations live only in our minds. But if we use our imaginations, our possibil
 ### 2019-07-11  
 Some of the world's greatest feats were accomplished by people not smart enough to know they were impossible.  
 世上有些丰功伟绩之所以能缔造，是因为有些人不够“聪明”，不知道那些原是不可能的。  
+### 2019-07-12  
+The future is simply infinite possibility waiting to happen. What it waits on is human imagination to crystallize its possibilities.  
+未来就是有待发生的可能性。它等待着人类的想象力将这些可能变成现实。  
