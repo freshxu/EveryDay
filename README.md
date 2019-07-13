@@ -863,3 +863,6 @@ Some of the world's greatest feats were accomplished by people not smart enough 
 ### 2019-07-12  
 The future is simply infinite possibility waiting to happen. What it waits on is human imagination to crystallize its possibilities.  
 未来就是有待发生的可能性。它等待着人类的想象力将这些可能变成现实。  
+### 2019-07-13  
+There are betrayals in war that are childlike compared with our human betrayals during peace.  
+战火硝烟中的背叛与我们在太平盛世中的背叛相较而言，就天真单纯得多了！  
