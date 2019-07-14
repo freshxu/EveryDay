@@ -866,3 +866,6 @@ The future is simply infinite possibility waiting to happen. What it waits on is
 ### 2019-07-13  
 There are betrayals in war that are childlike compared with our human betrayals during peace.  
 战火硝烟中的背叛与我们在太平盛世中的背叛相较而言，就天真单纯得多了！  
+### 2019-07-14  
+After the rain, the sun will reappear. There is life. After the pain, the joy will be here.  
+雨后必见太阳。这就是生活。正如痛苦过后必见快乐。  
