@@ -869,3 +869,6 @@ There are betrayals in war that are childlike compared with our human betrayals 
 ### 2019-07-14  
 After the rain, the sun will reappear. There is life. After the pain, the joy will be here.  
 雨后必见太阳。这就是生活。正如痛苦过后必见快乐。  
+### 2019-07-15  
+One is always on a strange road, watching strange scenery and listening to strange music. Then one day, you will find that the things you try hard to forget are already gone.  
+一个人总要走陌生的路，看陌生的风景，听陌生的歌，然后在某个不经意的瞬间，你会发现，原本是费尽心机想要忘记的事情真的就那么忘记了。  
