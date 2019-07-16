@@ -872,3 +872,6 @@ After the rain, the sun will reappear. There is life. After the pain, the joy wi
 ### 2019-07-15  
 One is always on a strange road, watching strange scenery and listening to strange music. Then one day, you will find that the things you try hard to forget are already gone.  
 一个人总要走陌生的路，看陌生的风景，听陌生的歌，然后在某个不经意的瞬间，你会发现，原本是费尽心机想要忘记的事情真的就那么忘记了。  
+### 2019-07-16  
+Living without an aim is like sailing without a compass.  
+生活没有目标，犹如航海没有罗盘。  
