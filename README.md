@@ -878,3 +878,6 @@ Living without an aim is like sailing without a compass.
 ### 2019-07-17  
 Happiness is not about being immortal nor having food or rights in one's hand. It’s about having each tiny wish come true, or having something to eat when you are hungry or having someone's love when you need love.  
 幸福，不是长生不老，不是大鱼大肉，不是权倾朝野。幸福是能够实现每个小愿望，饿的时候有的吃，需要爱的时候有人爱。  
+### 2019-07-18  
+Towering genius disdains a beaten path. It seeks regions hitherto unexplored.  
+卓越的天才不屑走旁人走过的路。他寻找迄今未开拓的地区。  
