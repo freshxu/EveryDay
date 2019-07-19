@@ -881,3 +881,6 @@ Happiness is not about being immortal nor having food or rights in one's hand. I
 ### 2019-07-18  
 Towering genius disdains a beaten path. It seeks regions hitherto unexplored.  
 卓越的天才不屑走旁人走过的路。他寻找迄今未开拓的地区。  
+### 2019-07-19  
+Fear not that the life shall come to an end, but rather fear that it shall never have a beginning.  
+不要害怕你的生活将要结束，应该担心你的生活永远还未真正开始。  
