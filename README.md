@@ -884,3 +884,6 @@ Towering genius disdains a beaten path. It seeks regions hitherto unexplored.
 ### 2019-07-19  
 Fear not that the life shall come to an end, but rather fear that it shall never have a beginning.  
 不要害怕你的生活将要结束，应该担心你的生活永远还未真正开始。  
+### 2019-07-20  
+Strength alone knows conflict, weakness is below even defeat, and is born vanquished.  
+只有强者才懂得争斗；弱者甚至失败都不够资格，而是生来就是被征服的。  
