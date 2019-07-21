@@ -887,3 +887,6 @@ Fear not that the life shall come to an end, but rather fear that it shall never
 ### 2019-07-20  
 Strength alone knows conflict, weakness is below even defeat, and is born vanquished.  
 只有强者才懂得争斗；弱者甚至失败都不够资格，而是生来就是被征服的。  
+### 2019-07-21  
+The failures and reverses which await men-and one after another sadden the brow of youth-add a dignity to the prospect of human life, which no Arcadian success would do.  
+尽管失败和挫折等待着人们，一次次地夺走青春的容颜，但却给人生的前景增添了一份尊严，这是任何顺利的成功都不能做到的。  
