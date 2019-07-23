@@ -893,3 +893,6 @@ The failures and reverses which await men-and one after another sadden the brow 
 ### 2019-07-22  
 If you really love someone, the whole life will not be enough. You need time to know, to forgive and to love. All this needs a very big mind.  
 爱的次数不需多，只需真爱。真爱需要时间去经营，需要用心去了解，需要胸襟去包容。  
+### 2019-07-23  
+The rain will stop, the night will end, the hurt will fade. Hope is never so lost that it can't be found.  
+雨会停，夜有终，伤会消。希望其实一直等待着我们去寻找。  
