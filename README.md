@@ -896,3 +896,6 @@ If you really love someone, the whole life will not be enough. You need time to 
 ### 2019-07-23  
 The rain will stop, the night will end, the hurt will fade. Hope is never so lost that it can't be found.  
 雨会停，夜有终，伤会消。希望其实一直等待着我们去寻找。  
+### 2019-07-24  
+Miracles sometimes occur, but one has to work terribly for them.  
+奇迹有时候是会发生的，但是你得为之拼命地努力。  
