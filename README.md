@@ -899,3 +899,6 @@ The rain will stop, the night will end, the hurt will fade. Hope is never so los
 ### 2019-07-24  
 Miracles sometimes occur, but one has to work terribly for them.  
 奇迹有时候是会发生的，但是你得为之拼命地努力。  
+### 2019-07-25  
+The purpose of human life is to serve, and to show compassion and the will to help others.  
+人生的目的在于服务他人、同情怜悯和乐于助人。  
