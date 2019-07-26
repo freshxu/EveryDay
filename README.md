@@ -902,3 +902,6 @@ Miracles sometimes occur, but one has to work terribly for them.
 ### 2019-07-25  
 The purpose of human life is to serve, and to show compassion and the will to help others.  
 人生的目的在于服务他人、同情怜悯和乐于助人。  
+### 2019-07-26  
+I think people just get frustrated without harsh, life can be. So they're spending their time dwelling on that frustration we calling it anger. keep their eyes shut to the wholeness of the situation.  
+我觉得有些人只对生活的艰苦灰心丧气，因此把时间都浪费在灰心丧气里，我们称之为愤怒，对事物的整体视而不见，对于所有能够成功的微小元素视而不见。  
