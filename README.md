@@ -905,3 +905,6 @@ The purpose of human life is to serve, and to show compassion and the will to he
 ### 2019-07-26  
 I think people just get frustrated without harsh, life can be. So they're spending their time dwelling on that frustration we calling it anger. keep their eyes shut to the wholeness of the situation.  
 我觉得有些人只对生活的艰苦灰心丧气，因此把时间都浪费在灰心丧气里，我们称之为愤怒，对事物的整体视而不见，对于所有能够成功的微小元素视而不见。  
+### 2019-07-27  
+Good love makes you see the whole world from one person while bad love makes you abandon the whole world for one person.  
+好的爱情是你透过一个人看到全世界，坏的爱情是你为了一个人放弃全世界。  
