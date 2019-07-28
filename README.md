@@ -908,3 +908,6 @@ I think people just get frustrated without harsh, life can be. So they're spendi
 ### 2019-07-27  
 Good love makes you see the whole world from one person while bad love makes you abandon the whole world for one person.  
 好的爱情是你透过一个人看到全世界，坏的爱情是你为了一个人放弃全世界。  
+### 2019-07-28  
+And when they let you down,you get up off the ground. Cause morning rolls around. And it's another day of sun.  
+当人们令你失望，你更要勇往直前，因为早晨到来，又是阳光灿烂的一天。  
