@@ -911,3 +911,6 @@ Good love makes you see the whole world from one person while bad love makes you
 ### 2019-07-28  
 And when they let you down,you get up off the ground. Cause morning rolls around. And it's another day of sun.  
 当人们令你失望，你更要勇往直前，因为早晨到来，又是阳光灿烂的一天。  
+### 2019-07-29  
+Do not, for one repulse, forgo the purpose that you resolved to effort.  
+不要只因一次挫败，就放弃你原来决心想达到的目的。  
