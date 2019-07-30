@@ -914,3 +914,6 @@ And when they let you down,you get up off the ground. Cause morning rolls around
 ### 2019-07-29  
 Do not, for one repulse, forgo the purpose that you resolved to effort.  
 不要只因一次挫败，就放弃你原来决心想达到的目的。  
+### 2019-07-30  
+A man can fail many times, but he isn't a failure until he begins to blame somebody else.  
+一个人可以失败很多次，但是只要他没有开始责怪旁人，他还不是一个失败者。  
