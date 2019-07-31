@@ -917,3 +917,6 @@ Do not, for one repulse, forgo the purpose that you resolved to effort.
 ### 2019-07-30  
 A man can fail many times, but he isn't a failure until he begins to blame somebody else.  
 一个人可以失败很多次，但是只要他没有开始责怪旁人，他还不是一个失败者。  
+### 2019-07-31  
+If there were less sympathy in the world, there would be less trouble in the world.  
+如果世界上少一些同情，世界上也就会少一些麻烦。  
