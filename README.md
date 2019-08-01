@@ -920,3 +920,6 @@ A man can fail many times, but he isn't a failure until he begins to blame someb
 ### 2019-07-31  
 If there were less sympathy in the world, there would be less trouble in the world.  
 如果世界上少一些同情，世界上也就会少一些麻烦。  
+### 2019-08-01  
+What is the most resilient parasite? Bacteria? A virus? An intestinal worm? An idea.  
+最具有可塑性的寄生生物是什么？是细菌吗？是病毒吗？是肠虫吗？其实是人的想法。  
