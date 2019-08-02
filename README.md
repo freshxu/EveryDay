@@ -923,3 +923,6 @@ If there were less sympathy in the world, there would be less trouble in the wor
 ### 2019-08-01  
 What is the most resilient parasite? Bacteria? A virus? An intestinal worm? An idea.  
 最具有可塑性的寄生生物是什么？是细菌吗？是病毒吗？是肠虫吗？其实是人的想法。  
+### 2019-08-02  
+Some people hear their own inner voices with great clearness. And they live by what they hear. Such people become crazy, or they become legends.  
+有些人能清楚地听到自己内心深处的声音，并以此行事。这些人要么变成了疯子，要么成为传奇。  
