@@ -926,3 +926,6 @@ What is the most resilient parasite? Bacteria? A virus? An intestinal worm? An i
 ### 2019-08-02  
 Some people hear their own inner voices with great clearness. And they live by what they hear. Such people become crazy, or they become legends.  
 有些人能清楚地听到自己内心深处的声音，并以此行事。这些人要么变成了疯子，要么成为传奇。  
+### 2019-08-03  
+The things we lose have a way of coming back to us in the end, if not always in the way we expect.   
+失去的东西到最后总有办法回来的，尽管有时会出乎我们的意料。  
